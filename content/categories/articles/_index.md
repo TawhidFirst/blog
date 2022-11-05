@@ -1,7 +1,7 @@
 ---
 title: Articles
 description: Ecrits bénéfiques
-image:
+image: articles.jpg
 
 # Badge style
 style:
