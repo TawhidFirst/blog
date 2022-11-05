@@ -1,9 +1,9 @@
 ---
 title: À celui qui n’a pu faire le pèlerinage cette année
 description: Accomplis ces adorations même de chez toi
-slug: a-celui-qui-na-pu-faire-le-pelerinage-cette-annee
-date: 2016-09-14 00:00:00+0000
 image: a-celui-qui-na-pu-faire-le-pelerinage-cette-annee.jpg
+draft: False
+date: 2016-09-14
 categories:
   - Fawaïd
 ---
