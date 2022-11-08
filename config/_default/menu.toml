@@ -13,7 +13,7 @@ name = "Youutube"
 url = "https://www.youtube.com/c/TawhidfirstFr"
 
 [social.params]
-icon = "brand-telegram"
+icon = "brand-github"
 
 [[social]]
 identifier = "twitter"
