@@ -1,10 +1,16 @@
 ---
 title: Links
 links:
-  - title: GitHub
-    description: GitHub is the world's largest software development platform.
-    website: https://github.com
-    image: https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png
+  - title: Site de Cheikh 'Abd Al Mouhsin
+    description: L'éminent savant de Médine, spécialisé dans la science du hadith, qu'Allah le préserve.
+    website: https://al-abbaad.com/
+    image: https://pbs.twimg.com/profile_images/1672082720/______-_______400x400.jpg
+
+  - title: Site de Cheikh 'Abd Al Mouhsin
+    description: L'éminent savant de Médine, spécialisé dans la science du hadith, qu'Allah le préserve.
+    website: https://al-abbaad.com/
+    image: https://pbs.twimg.com/profile_images/466237311403831297/j6CTz-ar_400x400.png
+
 menu:
     main: 
         weight: 4
@@ -14,18 +20,4 @@ menu:
 comments: false
 ---
 
-Liens utiles à consulter sans modération :
-
-
-links:
-  - title: GitHub
-    description: GitHub is the world's largest software development platform.
-    website: https://github.com
-    image: https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png
-  - title: TypeScript
-    description: TypeScript is a typed superset of JavaScript that compiles to plain JavaScript.
-    website: https://www.typescriptlang.org
-    image: ts-logo-128.jpg
-
-
-`image` field accepts both local and external images.
+Liens utiles à consulter sans modération

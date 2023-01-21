@@ -5,6 +5,6 @@ image: fawaïd.jpg
 
 # Badge style
 style:
-    background: "#fff3d0"
+    background: "#C49D83"
     color: "#000"
 ---

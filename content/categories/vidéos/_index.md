@@ -5,6 +5,6 @@ image: vidéos.jpg
 
 # Badge style
 style:
-    background: "#8b7e58"
+    background: "#9E8277"
     color: "#fff"
 ---
