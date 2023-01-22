@@ -1,6 +1,6 @@
 ---
 title: Articles
-description: Ecrits bénéfiques
+description: Beneficial writings
 image: articles.jpg
 
 # Badge style

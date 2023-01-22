@@ -1,7 +1,7 @@
 ---
-title: Vidéos
-description: Supports visuels
-image: vidéos.jpg
+title: Videos
+description: Visual supports
+image: videos.jpg
 
 # Badge style
 style:

@@ -5,9 +5,7 @@ image: jurer-par-le-coran-ou-le-moushaf.jpg
 draft: False
 date: 2020-07-13
 categories:
-
 - Fatawa
-
 ---
 
 ## Question
@@ -18,10 +16,10 @@ d’Allah ?
 ## Réponse
 
 Il est autorisé de jurer par le Coran, à condition que le sujet du serment soit la parole
-d’Allah. Le Coran est effectivement La parole d’Allah, il dit _« Par le Coran »_, comme il
-pourrait dire _« Par La parole d’Allah »_. Puisque le Coran fait partie de la parole
+d’Allah. Le Coran est effectivement La parole d’Allah, il dit « Par le Coran », comme il
+pourrait dire « Par La parole d’Allah ». Puisque le Coran fait partie de la parole
 d’Allah, le serment par le Coran est donc un serment fait par l’un des attributs d’Allah.
-Cependant, on ne jure pas par le Moushaf. On ne dit pas : _« Par le Moushaf »_, car il
+Cependant, on ne jure pas par le Moushaf. On ne dit pas : « Par le Moushaf », car il
 contient La parole d’Allah et ce qui n’en fait pas parti. Il contient La parole d’Allah
 écrite, mais aussi l’encre, qui est quant à elle créée. Les feuillets sont également
 créés, il en va de même pour la couverture. Il y a dans le Moushaf ce qui n’est pas créé
