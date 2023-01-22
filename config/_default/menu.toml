@@ -30,3 +30,11 @@ url = "https://telegram.me/s/TawhidFirst"
 
 [social.params]
 icon = "brand-telegram"
+
+[[social]]
+identifier = "email"
+name = "Email"
+url = "mailto:tawhidfirst@hotmail.com"
+
+[social.params]
+icon = "brand-email"

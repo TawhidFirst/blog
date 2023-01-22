@@ -1,7 +1,16 @@
 # Uncomment this file to enable multilanguage site support
+[fr]
+languageName = "Français"
+languagedirection = "ltr"
+contentDir = "content/fr"
+weight = 1
 
-#[en]
-#languageName = "English"
-#languagedirection = "ltr"
-#title = "Example Site"
-#weight = 1
+[en]
+languageName = "English"
+languagedirection = "ltr"
+sidebar.subtitle = "The Tawhid is the sense and essence of your existence !"
+sidebar.avatar.enabled = true
+sidebar.avatar.local = true
+sidebar.avatar.src = "img/avatar.jpg"
+contentDir = "content/en"
+weight = 2
