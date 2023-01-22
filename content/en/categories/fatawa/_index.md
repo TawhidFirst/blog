@@ -1,6 +1,6 @@
 ---
 title: Fatawa
-description: Avis religieux
+description: Religious clarifications
 image: fatawa.jpg
 
 # Badge style

@@ -1,6 +1,6 @@
 ---
 title: Fawaïd
-description: Enseignements profitables
+description: Profitable teachings
 image: fawaïd.jpg
 
 # Badge style

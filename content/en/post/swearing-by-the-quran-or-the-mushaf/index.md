@@ -26,4 +26,4 @@ not created and what is. That's why you should not swear by the Mushaf. However,
 oath is made by the Quran, in the sense of the word of Allah and not the Mushaf, then this
 is valid.
 
-Author: Sheikh 'Abd Al Mouhsin Al 'Abbad, may Allah preserve him.
+Author: Cheikh 'Abd Al Mouhsin Al 'Abbad, may Allah preserve him.
