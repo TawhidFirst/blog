@@ -1,5 +1,5 @@
 # Change baseurl before deploy
-baseurl = "https://tawhidfirst.github.io/"
+baseurl = "https://tawhidfirst.fr/"
 languageCode = "fr-fr"
 paginate = 5
 title = "Tawhid First"
