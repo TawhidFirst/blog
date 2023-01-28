@@ -1,7 +1,7 @@
 ---
 title: La demande d'invocation aux morts, innovation ou Shirk ?
 description: Détail sur cette question qui touche la croyance
-image: la-demande-dinvocation-aux-morts.jpg
+image: image.jpg
 draft: False
 date: 2019-03-11
 categories:
