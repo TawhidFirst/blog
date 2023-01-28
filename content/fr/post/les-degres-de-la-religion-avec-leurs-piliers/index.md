@@ -1,7 +1,7 @@
 ---
 title: Quels sont les degrés de la religion ?
 description: La religion a trois degrés qui sont liés
-image: les-degres-de-la-religion-avec-leurs-piliers.jpg
+image: image.jpg
 draft: False
 date: 2017-09-10
 categories:

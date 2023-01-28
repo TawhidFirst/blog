@@ -1,7 +1,7 @@
 ---
 title: Is the food made on the occasion of Mawlid permissible ?
 description: Behavior to adopt in the face of innovation
-image: food-made-on-the-occasion-of-mawlid.jpg
+image: image.jpg
 draft: False
 date: 2018-11-13
 categories:
