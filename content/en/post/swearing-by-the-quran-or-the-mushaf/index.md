@@ -1,5 +1,5 @@
 ---
-title: What is the ruling on swearing by the Quran or the Mushaf ?
+title: What is the ruling on swearing by the Quran or the Mushaf?
 description: Many swear by the Quran without knowing if it is allowed or not
 image: swearing-by-the-quran-or-the-mushaf.jpg
 draft: False

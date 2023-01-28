@@ -1,5 +1,5 @@
 ---
-title: Does the love of forbidden images fall under the category of Shirk ?
+title: Does the love of forbidden images fall under the category of Shirk?
 description: Fear Allah in what you see
 image: the-love-of-forbidden-images.jpg
 draft: False
@@ -12,7 +12,7 @@ categories:
 
 Honorable Cheikh, may Allah grant you success, does loving to see forbidden images that
 can be found on phones, on the internet, and constantly desiring them, fall under the
-forms of Shirk where the person becomes an idolater of these images ?
+forms of Shirk where the person becomes an idolater of these images?
 
 ## Answer
 

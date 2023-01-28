@@ -1,5 +1,5 @@
 ---
-title: The request for invocation to the dead, innovation or Shirk ?
+title: The request for invocation to the dead, innovation or Shirk?
 description: Details on this question that touches on belief
 image: the-request-for-invocation-to-the-dead.jpg
 draft: False
