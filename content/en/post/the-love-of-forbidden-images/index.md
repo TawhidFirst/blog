@@ -1,7 +1,7 @@
 ---
 title: Does the love of forbidden images fall under the category of Shirk?
 description: Fear Allah in what you see
-image: the-love-of-forbidden-images.jpg
+image: image.jpg
 draft: False
 date: 2020-08-10
 categories:

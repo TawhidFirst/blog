@@ -1,7 +1,7 @@
 ---
 title: How to Understand this Hadith that Calls for Good Morals?
 description: The best behavior is towards your Lord
-image: the-intended-meaning-in-the-appeal-to-good-morals.jpg
+image: image.jpg
 draft: False
 date: 2016-12-25
 categories:
