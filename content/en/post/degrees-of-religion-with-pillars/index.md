@@ -1,5 +1,5 @@
 ---
-title: What are the degrees of religion ?
+title: What are the degrees of religion?
 description: Religion has three degrees that are related
 image: degrees-of-religion-with-pillars.jpg
 draft: False
@@ -12,7 +12,7 @@ categories:
 
 ## Question
 
-What are the degrees of religion, citing for each one its pillars ?
+What are the degrees of religion, citing for each one its pillars?
 
 May Allah reward you well
 
