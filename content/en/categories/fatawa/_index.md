@@ -6,5 +6,5 @@ image: fatawa.jpg
 # Badge style
 style:
     background: "#BDA18A"
-    color: "#fff"
+    color: "#000"
 ---
