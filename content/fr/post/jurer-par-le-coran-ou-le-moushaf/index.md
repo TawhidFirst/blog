@@ -3,7 +3,7 @@ title: Quel est le jugement de jurer par le Coran ou le Moushaf ?
 description: Beaucoup jure sur le Coran sans pour autant savoir si c'est autorisé ou non
 image: image.jpg
 draft: False
-date: 2020-07-13
+date: 2023-08-01
 categories:
 - Fatawa
 ---

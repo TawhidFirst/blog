@@ -3,7 +3,7 @@ title: What is meant by the statement that Muhammad is the messenger of Allah?
 description: The meaning of the second declaration of faith and its relationship to the first
 image: image.jpg
 draft: False
-date: 2016-12-27
+date: 2023-08-01
 categories:
 - Fatawa
 ---

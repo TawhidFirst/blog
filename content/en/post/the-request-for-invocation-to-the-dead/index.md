@@ -3,7 +3,7 @@ title: The request for invocation to the dead, innovation or Shirk?
 description: Details on this question that touches on belief
 image: image.jpg
 draft: False
-date: 2019-03-11
+date: 2023-08-01
 categories:
 - Fatawa
 ---

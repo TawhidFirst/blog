@@ -3,7 +3,7 @@ title: À celui qui n’a pu faire le pèlerinage cette année
 description: Accomplis ces adorations même de chez toi
 image: image.jpg
 draft: False
-date: 2016-09-14
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

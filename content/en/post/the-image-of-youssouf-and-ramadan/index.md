@@ -3,7 +3,7 @@ title: The Image of Youssouf and Ramadan
 description: Think about this comparison
 image: image.jpg
 draft: False
-date: 2016-12-27
+date: 2023-08-01
 categories:
 - Fawaïd
 tags:

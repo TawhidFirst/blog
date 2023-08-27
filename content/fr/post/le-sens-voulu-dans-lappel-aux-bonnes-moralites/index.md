@@ -3,7 +3,7 @@ title: Comment comprendre ce hadith qui appel aux bonnes moralités ?
 description: Le meilleur comportement est celui envers ton Seigneur
 image: image.jpg
 draft: False
-date: 2016-12-25
+date: 2023-08-01
 categories:
 - Fatawa
 ---

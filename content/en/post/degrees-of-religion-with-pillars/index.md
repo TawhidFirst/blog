@@ -3,7 +3,7 @@ title: What are the degrees of religion?
 description: Religion has three degrees that are related
 image: image.jpg
 draft: False
-date: 2017-09-10
+date: 2023-08-01
 categories:
 - Fatawa
 ---
