@@ -3,7 +3,7 @@ title: L'acceptation des œuvres par le Tawhid et la prière
 description: Rien n'est accepté de toi sans ces deux bases fondamentales
 image: image.jpg
 draft: False
-date: 2016-12-27
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

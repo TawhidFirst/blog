@@ -3,7 +3,7 @@ title: Le principal n'est pas que tu adores Allah
 description: Adorer Allah ne suffit pas 
 image: image.jpg
 draft: False
-date: 2017-10-10
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

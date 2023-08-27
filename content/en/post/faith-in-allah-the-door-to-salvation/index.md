@@ -3,7 +3,7 @@ title: Faith in Allah, the door to salvation
 description: The only door that leads you out of perdition
 image: image.jpg
 draft: False
-date: 2016-12-26
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

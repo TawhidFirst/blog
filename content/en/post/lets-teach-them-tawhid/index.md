@@ -3,7 +3,7 @@ title: Let's teach them Tawhid
 description: Be a cause of good for the community
 image: image.jpg
 draft: False
-date: 2017-05-14
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

@@ -3,7 +3,7 @@ title: The Acceptance of Works Through Tawhid and Prayer
 description: Nothing is accepted from you without these two fundamental bases
 image: image.jpg
 draft: False
-date: 2016-12-27
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

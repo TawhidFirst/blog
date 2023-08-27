@@ -3,7 +3,7 @@ title: Tawhid and the Perception of the Companions
 description: The result of the Prophet's education
 image: image.jpg
 draft: False
-date: 2020-03-13
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

@@ -3,7 +3,7 @@ title: The efforts required in the call to Tawhid
 description: The community has a great need for this reminder
 image: image.jpg
 draft: False
-date: 2016-07-16
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

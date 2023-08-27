@@ -3,7 +3,7 @@ title: Quels sont les degrés de la religion ?
 description: La religion a trois degrés qui sont liés
 image: image.jpg
 draft: False
-date: 2017-09-10
+date: 2023-08-01
 categories:
 
 - Fatawa

@@ -3,7 +3,7 @@ title: Happiness is Achieved Through Tawhid
 description: Transmit this key to happiness
 image: image.jpg
 draft: False
-date: 2016-07-17
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

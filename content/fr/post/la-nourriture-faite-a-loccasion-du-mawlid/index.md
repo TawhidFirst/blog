@@ -3,7 +3,7 @@ title: La nourriture faite à l'occasion du Mawlid est-elle licite ?
 description: Comportement à adopter face à l'innovateur
 image: image.jpg
 draft: False
-date: 2018-11-13
+date: 2023-08-01
 categories:
 - Fatawa
 ---

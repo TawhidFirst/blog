@@ -3,7 +3,7 @@ title: The Benefit of Difficulty
 description: If you are in difficulty and trial, read this word
 image: image.jpg
 draft: False
-date: 2018-05-11
+date: 2023-08-01
 categories:
 - Fawaïd
 ---

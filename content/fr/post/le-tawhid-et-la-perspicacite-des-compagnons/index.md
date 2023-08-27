@@ -3,7 +3,7 @@ title: Le Tawhid et la perspicacité des compagnons
 description: Voici le fruit de l'éducation du prophète
 image: image.jpg
 draft: False
-date: 2020-03-13
+date: 2023-08-01
 categories:
 
 - Fawaïd
