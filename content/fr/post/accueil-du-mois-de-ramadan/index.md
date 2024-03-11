@@ -34,7 +34,7 @@ Allah a dit (dans le sens approché) : "Dis : 'Par la grâce d'Allah et par Sa m
 
 Le jeûne du Ramadan est l'un des piliers de l'Islam, l'une de ses fondations et colonnes importantes. En ce mois, la miséricorde d'Allah est descendu sur Ses serviteurs par la révélation du Coran. Il nous incombe de nous réjouir de ce mois, de remercier Allah, et de saisir ses opportunités dans ce qu'Allah a prescrit. En occupant ses jours par le jeûne, en rivalisant dans toutes les voies du bien, et la nuit par la prière, la récitation du Coran, le rappel d'Allah, la piété, et la bienveillance.
 
-Ô Allah, accordons nous Ton obéissance, aide-nous à Te rappeler, à Te remercier et à bien T'adorer. Facilite-nous le chemin de la droiture. Accorde-nous la grâce d'honorer ce noble invité en observant le jeûne et la prière, et en ayant une bonne conduite pendant ce mois, ô Seigneur de l'univers.
+Ô Allah, accordons nous Ton obéissance, aide-nous à Te rappeler, à Te remercier et à parfaire Ton adoration. Facilite-nous les causes du bien. Accorde-nous la grâce d'honorer ce noble invité en observant le jeûne et la prière, et en ayant un noble comportement pendant ce mois, ô Seigneur des univers.
 
 Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
 
