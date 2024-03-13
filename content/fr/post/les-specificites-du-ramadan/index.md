@@ -4,8 +4,10 @@ description: Conférence de Cheikh 'Abd Al Razzaq Al Badr à la grande mosquée 
 image: image.jpg
 draft: False
 date: 2024-03-13
-tag: Ramadan
-categories: Vidéos
+tags: 
+- Ramadan
+categories: 
+- Vidéos
 ---
 
 {{< youtube id="iCpRKnSnCj8" autoplay="true" >}}
