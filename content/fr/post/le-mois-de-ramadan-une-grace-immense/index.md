@@ -4,8 +4,10 @@ description: Quel mois noble et quelle période grandiose !
 image: image.jpg
 draft: False
 date: 2024-03-12
-tag: Ramadan
-categories: Articles
+tags: 
+- Ramadan
+categories: 
+- Articles
 ---
 
 Allah a comblé Ses serviteurs de nombreux bienfaits, qui ne pourraient être dénombrés et comptés : "Et si vous comptiez les bienfaits d'Allah, vous ne sauriez les dénombrer. Allah est certes Pardonneur et Miséricordieux" [Sourate 14, v.34]. Ces bienfaits peuvent être globaux ou spécifiques, religieux ou mondains. Allah a orienté Ses serviteurs vers ces bienfaits, les a guidé vers eux et les a appelés à la demeure de la paix : "Et Allah appelle à la Demeure de la Paix et guide qui Il veut vers un droit chemin." [Sourate 10, v.25]. Il les a préservé dans leurs raisons, leurs corps. Il les a pourvu de bonnes subsistances, leur a assujetti tout ce qui est dans les cieux et sur la terre. Tout cela est un don d'Allah pour que Ses serviteurs Le remercient, L'adorent seul sans associé, pour qu'ils obtiennent Son agrément, pour qu'ils gagnent Sa grâce et Ses miséricordes.

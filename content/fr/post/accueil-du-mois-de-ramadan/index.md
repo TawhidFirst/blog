@@ -4,8 +4,10 @@ description: Le mois de Ramadan vous est venu
 image: image.jpg
 draft: False
 date: 2024-03-11
-tag: Ramadan
-categories: Articles
+tags: 
+- Ramadan
+categories: 
+- Articles
 ---
 
 Parmi les grandes bénédictions qu'Allah a accordées à Ses serviteurs est qu'Il leur a accordé de multiples saisons pour l'adoration ; des périodes où les obéissances se multiplient, où les fautes sont absoutes, où les péchés et les mauvaises actions sont pardonnés, où les bonnes actions sont multipliées, où les miséricordes descendent, où les dons sont amplifiés. Parmi ces saisons, la plus noble d'entre elles auprès Allah, est le mois béni de Ramadan.  Allah dit (dans le sens approché) : "Le mois de Ramadan au cours duquel le Coran a été descendu comme guide pour les gens, avec des preuves claires de la bonne direction et du discernement."[Sourate 3, v.185]. Quel mois noble et quelle période grandiose ! Le mois des bénédictions et des biens, le mois du jeûne et de la prière nocturne, le mois de la miséricorde, du pardon et de la libération du feu de l'enfer, le mois de la générosité, de la largesse, du don, du convenable et de la bienfaisance.
