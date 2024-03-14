@@ -1,6 +1,6 @@
 ---
 title: Le jeûne face aux interdits d'Allah 
-description: Sais-tu qu'il existe une jeûne continuel
+description: Sais-tu qu'il existe un jeûne continuel
 image: image.jpg
 draft: False
 date: 2024-03-14
