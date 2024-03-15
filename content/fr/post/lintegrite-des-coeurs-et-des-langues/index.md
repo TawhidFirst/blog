@@ -1,5 +1,5 @@
 ---
-title: L'intégrité des cœurs et des langues
+title: L'intégrité des coeurs et des langues
 description: L'effet du jeûne sur la réforme de l'individu
 image: image.jpg
 draft: False
