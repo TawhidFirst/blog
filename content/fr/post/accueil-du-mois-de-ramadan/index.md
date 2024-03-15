@@ -14,19 +14,19 @@ Parmi les grandes bénédictions qu'Allah a accordées à Ses serviteurs est qu'
 
 Le messager d'Allah annonçait à ses compagnons l'arrivée de ce grand mois et les encourageait à redoubler d'efforts dans les bonnes actions, à accomplir les obligations religieuses et les actes surérogatoires, dont les prières, les aumônes, à agir en bien et faire preuve de bienfaisance, à patienter dans l'obéissance à Allah, à remplir ses journées par le jeûne et ses nuits par la prière, à occuper ces moments bénis avec le rappel, le remerciement, le Tasbih (SoubhanAllah), le Tahlil (La Ilaha Illa Allah), et la lecture du Coran.
 
-L'imam Ahmad a rapporté dans son Mousnad, d'après Anas ibn Malik qui a dit : "Ramadan est arrivé, les portes du paradis sont ouvertes en ce mois, les portes de l'enfer sont fermées, et les démons sont enchaînés."[¹]
+L'imam Ahmad a rapporté dans son Mousnad, d'après Anas ibn Malik qui a dit : "Ramadan est arrivé, les portes du paradis sont ouvertes en ce mois, les portes de l'enfer sont fermées, et les démons sont enchaînés."[^1]
 
-Al Tirmidhi et Ibn Majah ont rapporté d'après Abou Hourayra, que le messager d'Allah a dit : "Dès la première nuit de Ramadan, les démons sont enchaînés ainsi que leurs chefs. Les portes de l'enfer sont fermées et aucune d'entre elles ne reste ouverte, les portes du paradis sont ouvertes et aucune d'entre elles n'est fermée. Un héraut proclame : 'Ô celui qui veut le bien accours ! Ô celui qui désire le mal, retiens-toi !'. Allah affranchit des gens du feu,  et ceci a lieu chaque nuit."[²]
+Al Tirmidhi et Ibn Majah ont rapporté d'après Abou Hourayra, que le messager d'Allah a dit : "Dès la première nuit de Ramadan, les démons sont enchaînés ainsi que leurs chefs. Les portes de l'enfer sont fermées et aucune d'entre elles ne reste ouverte, les portes du paradis sont ouvertes et aucune d'entre elles n'est fermée. Un héraut proclame : 'Ô celui qui veut le bien accours ! Ô celui qui désire le mal, retiens-toi !'. Allah affranchit des gens du feu,  et ceci a lieu chaque nuit."[^2]
 
-Ahmad a également rapporté d'après Abou Hourayra : "Quand le mois de Ramadan arriva, le messager d'Allah a dit : 'Le mois de Ramadan vous est venu, un mois béni, Allah vous a prescrit d'y jeûner. Les portes du paradis y sont ouvertes, et les portes de l'enfer y sont fermées, et les démons y sont enchaînés. Il y a dans ce mois une nuit qui est meilleure que mille mois. Celui qui a été privé de ses bienfaits, est en réalité privé de tout bien"[³]. Le messager d'Allah a qualifié le mois de Ramadan comme étant un mois béni et il est comme tel. Chaque instant de ce mois est béni ; une bénédiction dans le temps, une bénédiction dans les actions, une bénédiction dans les rétributions et les récompenses. Il comprend la nuit béni du destin, qui est meilleure que mille mois. Parmi les bénédictions de ce mois, comme vu précédemment, les bonnes actions y sont multipliées, les portes du paradis s'ouvrent et celles de l'enfer se ferment, les démons sont enchaînés ainsi que leurs chefs, et Allah affranchi du feu un grand nombre de gens.
+Ahmad a également rapporté d'après Abou Hourayra : "Quand le mois de Ramadan arriva, le messager d'Allah a dit : 'Le mois de Ramadan vous est venu, un mois béni, Allah vous a prescrit d'y jeûner. Les portes du paradis y sont ouvertes, et les portes de l'enfer y sont fermées, et les démons y sont enchaînés. Il y a dans ce mois une nuit qui est meilleure que mille mois. Celui qui a été privé de ses bienfaits, est en réalité privé de tout bien"[^3]. Le messager d'Allah a qualifié le mois de Ramadan comme étant un mois béni et il est comme tel. Chaque instant de ce mois est béni ; une bénédiction dans le temps, une bénédiction dans les actions, une bénédiction dans les rétributions et les récompenses. Il comprend la nuit béni du destin, qui est meilleure que mille mois. Parmi les bénédictions de ce mois, comme vu précédemment, les bonnes actions y sont multipliées, les portes du paradis s'ouvrent et celles de l'enfer se ferment, les démons sont enchaînés ainsi que leurs chefs, et Allah affranchi du feu un grand nombre de gens.
 
-Il est confirmé dans les deux authentiques d'après Abou Hourayra que le messager d'Allah a dit : "Celui qui jeûne le Ramadan par foi et en espérant la récompense, ses péchés passés seront pardonnés. Celui qui veille la nuit du destin avec foi et espérant la récompense, ses péchés passés seront pardonnés"[⁴]. Il a également dit : "Celui qui prie (Tarawih) par foi et espérant la récompense, ses péchés passés seront pardonnés"[⁵].
+Il est confirmé dans les deux authentiques d'après Abou Hourayra que le messager d'Allah a dit : "Celui qui jeûne le Ramadan par foi et en espérant la récompense, ses péchés passés seront pardonnés. Celui qui veille la nuit du destin avec foi et espérant la récompense, ses péchés passés seront pardonnés"[^4]. Il a également dit : "Celui qui prie (Tarawih) par foi et espérant la récompense, ses péchés passés seront pardonnés"[^5].
 
 Cependant, l'une des plus grandes pertes et privations est de vivre ce noble mois béni du Ramadan, le mois du pardon, sans que ses péchés soient pardonnés, sans que ses fautes ne soient effacées, en raison de ses abus, et de l'absence de repentir, en négligeant ces moments précieux et ces jours pour s'orienter vers Allah par la repentance, le retour à Lui, la soumission, l'humilité, le repentir et la demande de pardon. Au contraire, cette personne entre dans ce noble mois et en ressort avec ses péchés intacts, persistant dans ses erreurs, fourvoyé dans ses égarements.
 
-Al Tabarani a rapporté dans son recueil de hadiths, selon Jabir Ibn Samoura, que le prophète a dit : "Djibril est venu à moi et a dit : 'Ô Mohammed ! Celui qui atteint l'un de ses parents (et ne se comporte pas bien à son égard), puis meurt et entre en enfer, qu'Allah l'éloigne !'. Dis : 'Amin'. J'ai dit : 'Amin'. Puis il dit : 'Ô Mohammed ! Celui qui atteint le mois de Ramadan puis meurt sans s'être vu pardonné ses péchés, qu'Allah l'éloigne !' Dis : 'Amin'. J'ai dit : 'Amin'. Puis il dit : 'Celui dont ton nom est mentionné devant lui et qui ne prie pas pour toi, puis meurt et entre en enfer, qu'Allah l'éloigne !' Dis : 'Amin'. J'ai dit : 'Amin'."[⁶]
+Al Tabarani a rapporté dans son recueil de hadiths, selon Jabir Ibn Samoura, que le prophète a dit : "Djibril est venu à moi et a dit : 'Ô Mohammed ! Celui qui atteint l'un de ses parents (et ne se comporte pas bien à son égard), puis meurt et entre en enfer, qu'Allah l'éloigne !'. Dis : 'Amin'. J'ai dit : 'Amin'. Puis il dit : 'Ô Mohammed ! Celui qui atteint le mois de Ramadan puis meurt sans s'être vu pardonné ses péchés, qu'Allah l'éloigne !' Dis : 'Amin'. J'ai dit : 'Amin'. Puis il dit : 'Celui dont ton nom est mentionné devant lui et qui ne prie pas pour toi, puis meurt et entre en enfer, qu'Allah l'éloigne !' Dis : 'Amin'. J'ai dit : 'Amin'."[^6]
 
-Al Tirmidhi a également rapporté d'après Abou Hourayra, que le prophète a dit : "Humilié soit celui devant qui mon nom est mentionné et qui ne prie pas pour moi. Humilié soit celui qui atteint Ramadan mais ne parvient pas à se faire pardonner avant qu'il ne soit parti. Humilié soit celui qui atteint un âge avancé où ses parents sont vivants et qu'il n'entre pas au paradis (par sa bonté envers eux)".[⁷]
+Al Tirmidhi a également rapporté d'après Abou Hourayra, que le prophète a dit : "Humilié soit celui devant qui mon nom est mentionné et qui ne prie pas pour moi. Humilié soit celui qui atteint Ramadan mais ne parvient pas à se faire pardonner avant qu'il ne soit parti. Humilié soit celui qui atteint un âge avancé où ses parents sont vivants et qu'il n'entre pas au paradis (par sa bonté envers eux)".[^7]
 
 Le mois de Ramadan est un mois de profit, un butin. Le prophète fournissait d'avantage d'efforts comparé aux autres mois. Les pieux prédécesseurs accordaient une grande importance à ce mois et s'y consacraient pour se rapprocher d'Allah par des actions vertueuses. Ils redoublaient d'efforts dans la prière nocturne et remplissaient leur temps par l'obéissance. Al Zouhri a dit : "Quand Ramadan arrive, il ne s'agit que de récitation du Coran et de nourrir les gens". Tel était le statut de Ramadan chez les pieux prédécesseurs : l'effort et l'ardeur, le jeûne et la prière, l'adoration et la récitation du Coran, le Tahlil ("La Ilaha Illa Allah") et le Tasbih ("SoubhanaAllah"), la piété et la bienveillance, la compassion, le soutien et la charité.
 
@@ -40,16 +40,16 @@ Le jeûne du Ramadan est l'un des piliers de l'Islam, l'une de ses fondations et
 
 Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
 
-[¹]: Dans le Mousnad de l'Imam Ahmad (13408), celui qui a vérifié le texte du Mousnad a dit : "Sa chaîne de transmission est authentique".
+[^1]: Dans le Mousnad de l'Imam Ahmad (13408), celui qui a vérifié le texte du Mousnad a dit : "Sa chaîne de transmission est authentique".
 
-[²]: Rapporté par Al Tirmidhi (682), Ibn Majah (1642), les termes sont ceux de Al Tirmidhi.
+[^2]: Rapporté par Al Tirmidhi (682), Ibn Majah (1642), les termes sont ceux de Al Tirmidhi.
 
-[³]: Musnad (9497)
+[^3]: Musnad (9497)
 
-[⁴]: Rapporté dans les deux authentiques Al Boukhari (2014), Mouslim (760)
+[^4]: Rapporté dans les deux authentiques Al Boukhari (2014), Mouslim (760)
 
-[⁵]: Rapporté dans les deux authentiques Al Boukhari (37), Mouslim (759)
+[^5]: Rapporté dans les deux authentiques Al Boukhari (37), Mouslim (759)
 
-[⁶]: Mou'Jam Al Kabir de Al Tabarani (2022)
+[^6]: Mou'Jam Al Kabir de Al Tabarani (2022)
 
-[⁷]: Rapporté par Al Tirmidhi (3545)
+[^7]: Rapporté par Al Tirmidhi (3545)
