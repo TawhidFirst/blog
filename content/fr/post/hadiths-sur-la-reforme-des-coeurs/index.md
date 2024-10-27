@@ -177,7 +177,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
     Par la suite, tout complément tiré du commentaire de Cheikh 'Abd Al
     Razzaq, qu'Allah le préserve, sera introduit par \[C\]. Qu'Allah
-    récompense grandement notre Chiekh, qu'Il rende cette œuvre bénie et
+    récompense grandement notre Cheikh, qu'Il rende cette œuvre bénie et
     profitable à Ses serviteurs dans leurs voyages des cœurs vers Lui.
     Qu'Allah lave nos cœurs avec l'eau pure de la neige et de la grêle,
     et qu'Il les purifie de nos fautes comme on nettoie un vêtement
