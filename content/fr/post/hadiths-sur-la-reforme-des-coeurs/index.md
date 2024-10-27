@@ -25,7 +25,7 @@ corruption, comme l'a dit le Prophète ﷺ :
 
 > Certes, il y a dans le corps un morceau de chair : s’il est sain, tout
 > le corps sera sain. Et s’il est corrompu, tout le corps sera corrompu.
-> Et ce morceau est le cœur ![^1]
+> Certes il s'agit du cœur ![^1]
 
 Al Hassan Al Basri a dit à un homme : "Remédie à ton cœur, car Allah
 veut d’eux la réforme de leurs cœurs"[^2]. Cela signifie qu'Il veut
