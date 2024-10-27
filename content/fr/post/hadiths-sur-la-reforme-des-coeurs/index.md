@@ -1,5 +1,5 @@
 ---
-title: Hadiths sur la réforme des cœurs
+title: Hadiths sur la réforme des coeurs
 description: Introduction
 image: image.jpg
 draft: False
