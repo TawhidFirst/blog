@@ -1,7 +1,6 @@
 # Change baseurl before deploy
 baseurl = "http://www.tawhidfirst.fr/"
 languageCode = "fr-fr"
-paginate = 5
 title = "Tawhid First"
 
 # Theme i18n support
@@ -12,3 +11,6 @@ removePathAccents=true
 # Set hasCJKLanguage to true if DefaultContentLanguage is in [zh-cn ja ko]
 # This will make .Summary and .WordCount behave correctly for CJK languages.
 hasCJKLanguage = false
+
+[pagination]
+pagerSize = 5
