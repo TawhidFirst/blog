@@ -43,6 +43,8 @@ Que les éloges d'Allah et le salut soient sur Son serviteur et messager,
 notre prophète Mohammed, sur ses fidèles suiveurs et l'ensemble de ses
 comapagnons.[^3]
 
+Traduction et annotation: Azwaw Abou 'Abd Al Razzaq
+
 [^1]: Rapporté par Al Boukhary (52) et Mouslim (1599).
 
 [^2]: Rapporté par Ibn Abi Al Dounya dans Al Tawadu' Wal Khumul (240),
