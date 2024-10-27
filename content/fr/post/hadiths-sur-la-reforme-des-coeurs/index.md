@@ -23,9 +23,9 @@ altère. C'est l'objectif principal, car l'influence du cœur sur les
 membres du corps est immense, tant en ce qui concerne sa réforme que sa
 corruption, comme l'a dit le Prophète ﷺ :
 
-> Certes, il y a dans le corps un morceau de chair : s’il est sain, tout
-> le corps sera sain. Et s’il est corrompu, tout le corps sera corrompu.
-> Certes il s'agit du cœur ![^1]
+> Certes, dans le corps, il y a un morceau de chair : s'il est sain, tout
+> le corps sera sain, et s'il est corrompu, tout le corps sera corrompu.
+> Il s'agit certainement du cœur ![^1]
 
 Al Hassan Al Basri a dit à un homme : "Remédie à ton cœur, car Allah
 veut d’eux la réforme de leurs cœurs"[^2]. Cela signifie qu'Il veut
@@ -36,7 +36,7 @@ J'ai présenté cette série bénéfique sur le thème "La réforme des cœurs",
 dans des interventions journalières diffusées sur la chaîne Al Sounnah
 Al Nabawiya. J'espère qu'Allah en multiplie les bienfaits et la
 bénédiction, et qu'elle soit pour nous une aide à la réforme de nos
-cœurs. Ces derniers sont sous Sa gestion, Il en est le Protecteur et le
+cœurs. Ces derniers sont sous Sa gestion, Il en est l'Allié et le
 Maître, seul sans associé.
 
 Que les éloges d'Allah et le salut soient sur Son serviteur et messager,
@@ -63,7 +63,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     mènera certes une vie pleine de gêne, et le Jour de la Résurrection,
     Nous le ressusciterons aveugle.'" \[Sourate 20, v.124\]. Il sera
     ainsi ressuscité aveugle, comme il a été aveugle avec son cœur face
-    à la révélation apportée par le Messager ﷺ d'Allah, et sera laissé
+    à la révélation apportée par le Messager d'Allah ﷺ, et sera laissé
     dans le châtiment pour avoir abandonné la guidance qui lui était
     parvenue.
 
@@ -110,8 +110,8 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     arbre doit être entretenu pour grandir et produire de bons fruits,
     en le nourrissant du rappel d’Allah, de Sa connaissance, et en
     accomplissant les bonnes actions. Il doit également se préserver des
-    maladies et des parasites, image des mauvaises actions, qui
-    pourraient le corrompre, l'affaiblir ou même le détruire.
+    maladies et des parasites, image des mauvaises actions et des ennemis, 
+    qui pourraient le corrompre, l'affaiblir ou même le détruire.
 
     Cheikh Mohammed Al Tamimi, qu'Allah lui fasse miséricorde, a dit
     dans Al Durar (2/115) : "La Ilaha Illa Allah est l'arbre du bonheur.
@@ -147,7 +147,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     érudits du Hadith. Ce livre est exclusivement composé de hadiths
     authentiques, l’auteur prenant soin d’indiquer le degré
     d'authenticité des hadiths lorsqu’ils ne sont pas issus des deux
-    authentiques, et en s’appuyant sur les travaux de Cheikh Al Albani,
+    authentiques, en s’appuyant notamment sur les travaux de Cheikh Al Albani,
     qu’Allah lui fasse miséricorde. Le livre est divisé en 75 parties\*,
     organisées autour de 137 hadiths, chaque partie explorant un sujet
     condensé dans un titre, introduit par un à cinq hadiths que l’auteur
@@ -169,7 +169,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     dernier que la réforme de son cœur est dans la main d'Allah. C'est
     pourquoi il doit accompagner ces causes par la demande à Allah de
     réformer son cœur, de purifier son nafs, et de lui octroyer sa
-    piété. Il est son Allié et son Maître. Il doit multiplier les
+    piété. Il est l'Allié et le Maître. Il doit multiplier les
     invocations à Allah, puis suivre cela par la lutte contre son nafs.
     Allah a dit (dans le sens approché) : 'Et quant à ceux qui luttent
     pour Notre cause, Nous les guiderons certes sur Nos sentiers. Allah
