@@ -27,7 +27,7 @@ corruption, comme l'a dit le Prophète ﷺ :
 > le corps sera sain, et s'il est corrompu, tout le corps sera corrompu.
 > Il s'agit certainement du cœur ![^1]
 
-Al Hassan Al Basri a dit à un homme : "Remédie à ton cœur, car Allah
+Al Hassan Al Basri a dit à un homme : "Guéris à ton cœur, car Allah
 veut d’eux la réforme de leurs cœurs"[^2]. Cela signifie qu'Il veut
 d'eux qu’ils réforment leurs cœurs, dont la réforme entraîne celle du
 corps et dont la corruption provoque celle du corps.
