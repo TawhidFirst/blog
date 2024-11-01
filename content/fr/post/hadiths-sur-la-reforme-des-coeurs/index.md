@@ -16,12 +16,12 @@ sans associé. J'atteste que Mohammed est Son serviteur et Son messager,
 que les éloges d'Allah et Son salut soient sur lui, ainsi que sur ses
 fidèles suiveurs et l'ensemble de ses compagnons.
 
-La plus grande chose sur laquelle se sont concentrés les efforts et les
-résolutions est la réforme des cœurs : leur guérison, la préservation de
-leur santé, leur éloignement des maux et la protection contre ce qui les
-altère. C'est l'objectif principal, car l'influence du cœur sur les
-membres du corps est immense, tant en ce qui concerne sa réforme que sa
-corruption, comme l'a dit le Prophète ﷺ :
+Ceci étant dit, la plus grande chose sur laquelle se sont concentrés les 
+efforts et les résolutions est la réforme des cœurs : leur guérison, la 
+préservation de leur santé, leur éloignement des maux et la protection 
+contre ce qui les altère. C'est l'objectif principal, car l'influence du
+cœur sur les membres du corps est immense, tant en ce qui concerne sa 
+réforme que sa corruption, comme l'a dit le Prophète ﷺ :
 
 > Certes, dans le corps, il y a un morceau de chair : s'il est sain, tout
 > le corps sera sain, et s'il est corrompu, tout le corps sera corrompu.
