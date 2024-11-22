@@ -1,6 +1,6 @@
 ---
 title: Le coeur est la base
-description: Introduction
+description: Le corps suit le coeur dans son état
 image: image.jpg
 draft: False
 date: 2024-11-22
