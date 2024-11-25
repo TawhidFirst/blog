@@ -12,14 +12,14 @@ categories:
 
 Nu'man Ibn Bashir, qu'Allah l'agrée ainsi que son père, a dit :
 
-> J'ai entendu le Messager d’Allah dire (Nu'man pointa ses deux doigts
+> J'ai entendu le Messager d'Allah ﷺ dire (Nu'man pointa ses deux doigts
 > vers ses oreilles) : "Certes, le licite est clair et l’illicite est
 > clair. Entre les deux, il existe des affaires ambiguës que nombre de
 > gens ne connaissent pas. Celui qui se prémunit contre ces ambiguïtés
 > préserve sa religion et son honneur. Quant à celui qui y tombe, il
 > tombe dans l’illicite. Il est à l’image du berger qui fait paître son
 > troupeau autour d'une réserve, à tout moment il est susceptible d'y
-> paitre ces bêtes. Or, chaque roi dispose d’un enclos, et l’enclos
+> paître ces bêtes. Or, chaque roi dispose d’un enclos, et l’enclos
 > d’Allah sont Ses interdits. Certes, dans le corps, il y a un morceau
 > de chair : s’il est sain, tout le corps sera sain, et s’il est
 > corrompu, tout le corps sera corrompu. Il s’agit certainement du
@@ -35,7 +35,7 @@ le roi des membres, et ceux-ci sont ses soldats. Si le roi est bon,
 alors ses soldats le seront également. Mais s’il est corrompu, ses
 soldats le seront aussi'. Ce qui est en adéquation avec le hadith de
 Nu'man Ibn Bashir présent dans les deux authentiques, selon lequel le
-prophète a dit :
+Prophète ﷺ a dit :
 
 > Certes, dans le corps, il y a un morceau de chair, s’il est sain, tout
 > le corps sera sain, et s’il est corrompu, tout le corps sera corrompu.
@@ -99,12 +99,13 @@ C’est également sur cela que se pose le regard du Seigneur, comme cela
 est rapporté par Muslim dans son Sahih, d'après Abou Hourayra, qui a dit
 :
 
-> Le Messager d'Allah a dit : "Certes, Allah ne regarde pas vos corps ni
-> vos apparences, mais Il regarde vos cœurs."[^4]
+> Le Messager d'Allah ﷺ a dit : "Certes, Allah ne regarde pas vos corps
+> ni vos apparences, mais Il regarde vos cœurs."[^4]
 
 Puis il pointa son doigt vers sa poitrine.
 
-Muslim et Ahmad rapportent, selon Abou Hourayra, que le Prophète a dit :
+Muslim et Ahmad rapportent, selon Abou Hourayra, que le Prophète ﷺ a dit
+:
 
 > La crainte pieuse \[Taqwa\] est ici, et il pointa son doigt vers sa
 > poitrine, trois fois.[^5]
@@ -114,7 +115,7 @@ véritablement dans sa piété envers Allah, alors tous les membres le
 suivront également. Ils œuvreront dans l'obéissance d'Allah et
 rechercheront Son agréement.
 
-Dans le Mousnad, d'après Anas Ibn Malik, le Messager d'Allah a dit :
+Dans le Mousnad, d'après Anas Ibn Malik, le Messager d'Allah ﷺ a dit :
 
 > La foi d’un serviteur n’est pas droite tant que son cœur n’est pas
 > droit.[^6]
@@ -153,7 +154,7 @@ qu'Allah, alors le cœur sera corrompu, et les actions du corps le seront
 également, en fonction du degré de corruption des impulsions du
 cœur".[^10]
 
-Il est rapporté dans le Mousnad que le prophète a dit :
+Il est rapporté dans le Mousnad que le Prophète ﷺ a dit :
 
 > Celui qui donne en Allah, interdit en Allah, aime en Allah et déteste
 > en Allah a alors complété la foi.[^11]
@@ -231,9 +232,9 @@ lui seul, dans les paroles et les actions :
   leurs conséquences;
 - ainsi que les actions des membres du corps.
 
-Dans toutes ces choses, ausssi minime ou considérable soit-elle, il juge
-selon ce sur quoi est venu le messager, il ne le devance pas dans une
-croyance, une parole ou une action, comme Allah a dit (dans le sens
+Dans toutes ces choses, aussi minimes ou considérables soient-elles, il
+juge selon ce sur quoi est venu le messager, il ne le devance pas dans
+une croyance, une parole ou une action, comme Allah a dit (dans le sens
 approché) :
 
 > Ô vous qui avez cru! Ne devancez pas Allah et Son messager.—Sourate
@@ -258,7 +259,7 @@ se rapprocher de Lui.
 Cette question, en substance : as-tu fait cette action pour ton Maître
 ou pour ton propre intérêt et tes désirs ?
 
-La deuxième question, quant à elle, touche le suivi du Messager dans
+La deuxième question, quant à elle, touche le suivi du Messager ﷺ dans
 cette adoration. Autrement dit, cette action était-elle conforme à ce
 que J'ai légiféré pour toi par l'intermédiaire de Mon Messager, ou
 était-ce une œuvre que Je n'ai pas légiférée et que Je n'ai pas agréée ?
@@ -269,7 +270,7 @@ sans ces deux conditions.
 
 La voie permettant de répondre à la première question est la
 purification de la sincérité, et pour la seconde, c'est la
-concrétisation du suivi (du Messager d'Allah). L'épuration du cœur de
+concrétisation du suivi (du Messager d'Allah ﷺ). L'épuration du cœur de
 toute intention qui s'oppose à la sincérité et de tout désir qui
 s'oppose à la conformité, telle est la réalité du cœur sain qui lui
 assure le salut et le bonheur."[^17]
@@ -310,8 +311,8 @@ invocations rapportées :
 > Ô Allah, accorde à mon âme sa piété. Et purifie-la, car Tu es le
 > meilleur de ceux qui la purifient. Tu es son Allié et son Maître.[^22]
 
-Et dans le hadith que le prophète a enseigné a Shadad Ibn Aws, qu'Allah
-l'agrée:
+Et dans le hadith que le Prophète ﷺ a enseigné a Shadad Ibn Aws,
+qu'Allah l'agrée:
 
 > Lorsque tu verras les gens faire des réserves d'or et d'argent, tu
 > dois faire des réserves de ces paroles : 'Ô Allah! Je Te demande
@@ -325,7 +326,7 @@ l'agrée:
 > l'invisible'.[^23]
 
 C'est un hadith authentique qui englobe tout le bien, regroupe les
-portes de la bonté et concentre les mérites. Le Prophète a
+portes de la bonté et concentre les mérites. Le Prophète ﷺ a
 particulièrement insisté sur le soin que l'on doit porter à cette
 invocation et à la réalisation des grandes demandes qu'elle renferme et
 de ses nobles objectifs. En particulier, ce qui a trait à la
@@ -339,22 +340,20 @@ Je demande à Allah qu'Il nous accorde la réussite dans tout bien, qu'Il
 réforme l'ensemble de nos états. Il est certes Celui qui entend, qui est
 proche et qui exauce.
 
-Traduction: Azwaw Abou 'Abd Al Razzaq
-
 [^1]: Rapporté par Al Bukhari (52) et Muslim (1599).
 
     \[C\] Ce hadith, qui est le premier hadith de ce livre, est rapporté
     par Nu'man Ibn Bashir, qu'Allah l'agrée ainsi que son père et tous
     les compagnons. Il compte parmi les jeunes compagnons. Quand le
-    Prophète est mort, il avait huit ans ; il a donc pu entendre ce
-    hadith du Prophète à l'âge de six ou sept ans. Et pourtant, il a
+    Prophète ﷺ est mort, il avait huit ans ; il a donc pu entendre ce
+    hadith du Prophète ﷺ à l'âge de six ou sept ans. Et pourtant, il a
     appris et transmis à la communauté ce grand hadith. J'attire ici
     l'attention sur un point particulier : cet éminent hadith rapporté
     par ce jeune compagnon montre qu'il convient d’éduquer les jeunes
     dans cet esprit de réforme des cœurs, tout comme il revient aux plus
-    âgés de l'étudier. Ce compagnon a entendu ce hadith du Prophète
+    âgés de l'étudier. Ce compagnon a entendu ce hadith du Prophète ﷺ
     alors qu'il était dans sa jeunesse, il l’a appris, maîtrisé, et l’a
-    transmis à la communauté. Le Prophète a dit : "Qu'Allah fasse
+    transmis à la communauté. Le Prophète ﷺ a dit : "Qu'Allah fasse
     resplendir de beauté celui qui a entendu mes propos, puis les a
     saisis, mémorisés et transmis." \[Al Tirmidhi (2658) et authentifié
     par Cheikh Al Albani\]. C'est ainsi qu’a agi ce compagnon, qu'Allah
@@ -362,9 +361,9 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
     Ce hadith englobe de nombreux points :
 
-    1.  Le Halal et le Haram. Le Prophète commence en disant : " Le
+    1.  Le Halal et le Haram. Le Prophète ﷺ commence en disant : " Le
         licite est clair et l'illicite est clair. " Cela se réfère à ce
-        qu'Allah a clarifié dans Son Livre et ce que Son Messager a
+        qu'Allah a clarifié dans Son Livre et ce que Son Messager ﷺ a
         clarifié dans sa Sunnah. Entre le Halal et le Haram, il y a des
         choses ambiguës ; la personne qui y porte attention ne peut
         discerner si ces choses comptent parmi les choses licites ou
@@ -380,7 +379,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
         action… de cette question ? " Le savant leur répond : " Cette
         chose est permise selon cette preuve… ", ou qu'elle n'est pas
         permise, puis il cite le hadith et l'argument qui fait foi, etc.
-        Ensuite, le Prophète indique ce qu'il convient de faire en cas
+        Ensuite, le Prophète ﷺ indique ce qu'il convient de faire en cas
         d’ambiguïté, lorsque la personne ne sait pas si la chose est
         autorisée ou non : "Celui qui se prémunit contre ces ambiguïtés
         préserve sa religion et son honneur". Dans ce contexte, il
@@ -389,10 +388,10 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
         savoir ce qu'il y a entre elle et Allah, mais aussi son honneur,
         ce qu'il y a entre elle et les gens. Tandis que la personne qui
         s’accommode des ambiguïtés finira par tomber dans l'illicite. Le
-        Prophète l'illustre en disant : "Il est à l’image du berger qui
-        fait paître son troupeau autour d'une réserve, à tout moment il
-        est susceptible d'y paitre ces bêtes". Il est comme celui qui ne
-        se préoccupe pas des ambiguïtés, dont la négligence le mènera
+        Prophète ﷺ l'illustre en disant : "Il est à l’image du berger
+        qui fait paître son troupeau autour d'une réserve, à tout moment
+        il est susceptible d'y paître ces bêtes". Il est comme celui qui
+        ne se préoccupe pas des ambiguïtés, dont la négligence le mènera
         vers les interdits. "Or, chaque roi dispose d’un enclos, et
         l’enclos d’Allah sont Ses interdits". Cet enclos qu'Allah a
         interdit à Ses serviteurs d'approcher et de franchir représente
@@ -400,7 +399,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
     2.  L'importance du cœur. Que ce soit dans ce sujet en particulier
         évoqué dans le hadith\* ou dans tout autre sujet religieux, le
-        Prophète met en lumière l'importance du cœur en disant :
+        Prophète ﷺ met en lumière l'importance du cœur en disant :
         "Certes, dans le corps, il y a un morceau de chair : s’il est
         sain, tout le corps sera sain, et s’il est corrompu, tout le
         corps sera corrompu. Il s’agit certainement du cœur!". Le terme
@@ -411,7 +410,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
         corps. Les membres ne peuvent agir en opposition à la volonté du
         cœur, que ce soit en bien ou en mal, dans ce qui est sain ou
         corrompu. Il y a donc dans ce hadith un avertissement du
-        Prophète pour tout musulman : qu'il veille à la réforme de son
+        Prophète ﷺ pour tout musulman : qu'il veille à la réforme de son
         cœur et prenne garde à sa corruption. Car si le cœur est sain,
         tous les membres le seront ; s’il est corrompu, ils le seront
         aussi. Il est donc obligatoire pour chaque musulman de porter
@@ -434,23 +433,23 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     la corruption du cœur, tandis que rechercher un gain licite et
     s’éloigner de l’interdit favorisent sa réforme. Car le cœur se
     réforme par la droiture de son détenteur dans l’obéissance à Allah
-    et à Son Messager, en appliquant les commandements et en délaissant
-    les interdits. C’est cela la Taqwa, la crainte pieuse d'Allah : que
-    la personne place entre elle-même et la colère et le châtiment
-    d'Allah une protection qui la prémunisse. Cela se concrétise par
-    l’accomplissement des ordres et le délaissement des interdits. C'est
-    pour cette raison que le Prophète a mentionné le cœur après avoir
-    évoqué le licite et l’illicite." \[cf. Cours 10\]
+    et à Son Messager ﷺ, en appliquant les commandements et en
+    délaissant les interdits. C’est cela la Taqwa, la crainte pieuse
+    d'Allah : que la personne place entre elle-même et la colère et le
+    châtiment d'Allah une protection qui la prémunisse. Cela se
+    concrétise par l’accomplissement des ordres et le délaissement des
+    interdits. C'est pour cette raison que le Prophète ﷺ a mentionné le
+    cœur après avoir évoqué le licite et l’illicite." \[cf. Cours 10\]
 
     \[Faïda\] Il est rapporté que Nu'man Ibn Bashir, qu'Allah les agrée,
     a transmis cent quatorze hadiths \[cf. Siyar A'lam Al-Nubala
     (3/411)\]. Dans d'autres cours, Cheikh 'Abd Al Razzaq Al Badr,
     qu'Allah le préserve, a souligné l'importance d'éduquer les enfants
-    à la science, à la Sunnah, et à l'amour des hadiths du Prophète. Il
-    recommande, par exemple, de leur enseigner les quarante hadiths d'Al
-    Nawawi \[un conseil que le Cheikh répète souvent, et un grand bien
-    pour celui qui le suit\]. Lorsqu'on arrive à ce hadith, le père ou
-    la mère peut encourager l'enfant en lui disant : "Regarde ce
+    à la science, à la Sunnah, et à l'amour des hadiths du Prophète ﷺ.
+    Il recommande, par exemple, de leur enseigner les quarante hadiths
+    d'Al Nawawi \[un conseil que le Cheikh répète souvent, et un grand
+    bien pour celui qui le suit\]. Lorsqu'on arrive à ce hadith, le père
+    ou la mère peut encourager l'enfant en lui disant : "Regarde ce
     compagnon qui avait moins de huit ans a retenu ce hadith dès la
     première fois ! Toi aussi, tu en es capable par l'aide d'Allah". De
     même, ils veillent à faire participer leurs enfants aux cours des
@@ -469,23 +468,23 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     cœur. Si le cœur est la base, que sont les membres du corps ? Ils le
     suivent dans son état, qu'il s'agisse d'intégrité ou de perversion.
     Dans d'autres écrits, Cheikh Al Islam a stipulé que la parole du
-    Prophète est plus complète que celle d’Ibn Massoud. En effet, si le
-    cœur est réformé, les membres le seront obligatoirement, et s'il est
-    corrompu, les membres le seront forcément. C'est un suivi du cœur
-    complet. Tandis que l'image donnée par Abou Hourayra vise à
-    faciliter la compréhension de ce sens. Mais la parole du Prophète
+    Prophète ﷺ est plus complète que celle d’Ibn Massoud. En effet, si
+    le cœur est réformé, les membres le seront obligatoirement, et s'il
+    est corrompu, les membres le seront forcément. C'est un suivi du
+    cœur complet. Tandis que l'image donnée par Abou Hourayra vise à
+    faciliter la compréhension de ce sens. Mais la parole du Prophète ﷺ
     est plus achevée, car le roi peut être intègre alors que certains de
     ses soldats peuvent être corrompus, ou bien il peut être à son tour
     perverti alors que certains soldats peuvent être intègres.
 
     \[NDT\] Cheikh Al Islam Ibn Taymiyyah a dit : "La parole du Prophète
-    est davantage explicite. En effet, bien que le roi soit pieux, il
+    ﷺ est davantage explicite. En effet, bien que le roi soit pieux, il
     n'en reste pas moins que ses soldats ont un libre arbitre et peuvent
     donc lui désobéir. Ou bien le contraire peut se présenter : certains
     soldats peuvent être intègres alors que lui peut être corrompu, et
     vice-versa. Contrairement au cœur, dont le corps ne peut que suivre,
     car il ne saurait se soustraire à sa volonté, comme l’a dit le
-    Prophète : 'S’il est sain, tout le corps sera sain, et s’il est
+    Prophète ﷺ : 'S’il est sain, tout le corps sera sain, et s’il est
     corrompu, tout le corps sera corrompu'." \[Majmu' Al Fatawa
     (7/187)\]
 
@@ -517,20 +516,20 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     deux formes : celles qui sont apparentes, réalisées par les membres,
     et celles qui sont cachées dans le cœur. La deuxième forme concerne
     ce qui est caché dans le cœur, comme la sincérité, l’amour d’Allah
-    et de Son Messager, la pleine confiance en Allah, la crainte que
+    et de Son Messager ﷺ, la pleine confiance en Allah, la crainte que
     l’on a de Lui, ainsi que la foi du cœur et sa confirmation des
-    informations transmises par le Messager. Le lien qui existe entre le
-    cœur et cette forme est manifeste, puisqu'il en est le siège. Cette
-    forme est la base de la première, et sa source de bien ou de mal est
-    plus profonde que la première. Aucun commandement apparent ne peut
-    être accompli sans la foi du cœur, l’amour et la magnification
-    d’Allah, Sa crainte, Son espoir, Sa pleine confiance et Son culte
-    exclusif. Si une personne accomplit des actions apparentes sans ces
-    éléments, elle est alors hypocrite. Elles \[les actions et paroles
-    internes\] conduisent naturellement à des actions visibles qui leur
-    correspondent et elles sont plus nobles que leurs branches
-    \[apparentes\]. Comme Allah le Très-Haut a dit (dans le sens
-    approché) : "Ce n’est ni leur chair ni leur sang qui parvient à
+    informations transmises par le Messager ﷺ. Le lien qui existe entre
+    le cœur et cette forme est manifeste, puisqu'il en est le siège.
+    Cette forme est la base de la première, et sa source de bien ou de
+    mal est plus profonde que la première. Aucun commandement apparent
+    ne peut être accompli sans la foi du cœur, l’amour et la
+    magnification d’Allah, Sa crainte, Son espoir, Sa pleine confiance
+    et Son culte exclusif. Si une personne accomplit des actions
+    apparentes sans ces éléments, elle est alors hypocrite. Elles \[les
+    actions et paroles internes\] conduisent naturellement à des actions
+    visibles qui leur correspondent et elles sont plus nobles que leurs
+    branches \[apparentes\]. Comme Allah le Très-Haut a dit (dans le
+    sens approché) : "Ce n’est ni leur chair ni leur sang qui parvient à
     Allah, mais c’est votre piété qui Lui parvient"." \[Sourate 22, v.
     37\]
 
@@ -547,7 +546,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     exemple, par ostentation ou par intérêt. Allah regarde donc d'abord
     les cœurs et en examine la rectitude, la pureté et la droiture, ou,
     lorsqu'il est corrompu, les déviations et les dérives qui en
-    découlent. Dans le hadith rapporté par Abou Hurayra, le Prophète a
+    découlent. Dans le hadith rapporté par Abou Hurayra, le Prophète ﷺ a
     dit : "La crainte pieuse \[Taqwa\] est ici", et il pointa trois fois
     son doigt vers sa poitrine. Cela signifie que sa source, sa base et
     son fondement résident dans le cœur. Comme Allah l’a dit (dans le
@@ -555,12 +554,13 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     les symboles d'Allah \[les signes apparents de la religion\], cela
     émane de la piété des cœurs" \[Sourate 22, v.32\]. L'exaltation des
     symboles du Hajj renvoie donc à cette base qu’est le cœur. Le
-    Prophète a montré sa poitrine trois fois de suite pour souligner la
-    gravité et l'importance du cœur en ce qui concerne la crainte pieuse
-    et sa réalisation. La Taqwa consiste à œuvrer dans l'obéissance à
-    Allah, avec une lumière provenant de Lui, en espérant Sa récompense,
-    et à délaisser la désobéissance, avec une lumière provenant de Lui,
-    en redoutant Son châtiment. La base de tout cela est le cœur.
+    Prophète ﷺ a montré sa poitrine trois fois de suite pour souligner
+    la gravité et l'importance du cœur en ce qui concerne la crainte
+    pieuse et sa réalisation. La Taqwa consiste à œuvrer dans
+    l'obéissance à Allah, avec une lumière provenant de Lui, en espérant
+    Sa récompense, et à délaisser la désobéissance, avec une lumière
+    provenant de Lui, en redoutant Son châtiment. La base de tout cela
+    est le cœur.
 
     \[NDT\] Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit :
     "L'action du cœur est l'âme de l'adoration et son noyau. Ainsi, si
@@ -647,14 +647,14 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     grande perdition. C'est pour ces raisons que la personne doit
     s'intéresser davantage à soigner son cœur qu'à soigner son corps.
 
-    \*\[NDT\] D'après Abu Hurayra, qu'Allah l'agrée, le Prophète a dit :
-    "Tout ce qui touche le musulman, qu'il s'agisse de fatigue, de
+    \*\[NDT\] D'après Abu Hurayra, qu'Allah l'agrée, le Prophète ﷺ a dit
+    : "Tout ce qui touche le musulman, qu'il s'agisse de fatigue, de
     maladie, de soucis, de tristesse, de gêne, d'angoisse, voire même
     d'une épine qui le pique, est une expiation de la part d'Allah pour
     ses péchés." \[Rapporté par Al Bukhari (5641) et Muslim (2573)\]
 
     D'après 'Aicha, qu'Allah soit satisfait d'elle, le Messager d'Allah
-    a dit : "Le croyant n'est touché ni par une épine, ni par
+    ﷺ a dit : "Le croyant n'est touché ni par une épine, ni par
     d'avantage, sans qu'Allah ne l'élève d'un degré et n'efface un
     péché." \[Rapporté par Al Tirmidhi et authentifié par Cheikh Al
     Albani dans Sahih Al Jami' (7731)\].
@@ -677,7 +677,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     serviteurs, qui se réalise pour celui ou celle qui patiente et
     espère la récompense d'Allah. C'est une spécificité des croyants,
     comme cela est mentionné dans le hadith de Suhayb Ibn Sinan Al Rumi,
-    qu'Allah l'agrée, où le Messager d'Allah a dit : "Que le cas du
+    qu'Allah l'agrée, où le Messager d'Allah ﷺ a dit : "Que le cas du
     croyant est étonnant! Tout ce qui lui advient est bénéfique, et cela
     n’est réservé qu’à lui seul. En effet, s'il est l’objet d’un
     événement heureux, il se montre reconnaissant et c’est un bien pour
@@ -708,7 +708,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     le Tawhid et le suivi conforme. Certains savants les appellent
     respectivement Tawhid Al Mursil \[le Tawhid de Celui qui envoie,
     c’est-à-dire Allah, par la sincérité\] et Tawhid Al Mursal \[le
-    Tawhid de celui qui est envoyé, c’est-à-dire le Messager d’Allah,
+    Tawhid de celui qui est envoyé, c’est-à-dire le Messager d'Allah ﷺ,
     par le suivi\]\*. Certains prédécesseurs ont dit : "Il n’y a pas une
     action, si petite soit-elle, sans qu’elle soit jugée selon deux
     critères : pourquoi et comment ? C'est-à-dire, pourquoi l'as-tu
@@ -778,18 +778,18 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     ses actions. Il aspire à l'agrément d'Allah et s'efforce de
     s'éloigner de tout ce qui pourrait provoquer Sa colère.
 
-[^20]: \[C\] Le Prophète a dit : "Le combattant (Mujahid) est celui qui
-    lutte contre son Nafs dans l'obéissance à Allah." \[Hadith de
+[^20]: \[C\] Le Prophète ﷺ a dit : "Le combattant (Mujahid) est celui
+    qui lutte contre son Nafs dans l'obéissance à Allah." \[Hadith de
     Fadalah Ibn 'Obayd, qu'Allah l'agrée, rapporté entre autres par
     l'imam Ahmad (23958) et authentifié par Cheikh Al Albani (cf.
     Hidayat Al Ruwat (1/72))\]
 
 [^21]: \[C\] La validité de l'œuvre repose sur deux piliers : la
-    sincérité envers l’Adoré \[Allah\] et le suivi du Messager. Il fait
-    en sorte de rendre l'action saine en la purifiant de toute
+    sincérité envers l’Adoré \[Allah\] et le suivi du Messager ﷺ. Il
+    fait en sorte de rendre l'action saine en la purifiant de toute
     ostentation visuelle ou auditive, ou de toute volonté d’en tirer un
     intérêt mondain. De même, il la rend saine en veillant à ce qu'elle
-    s'inscrive dans le suivi conforme du noble Messager.
+    s'inscrive dans le suivi conforme du noble Messager ﷺ.
 
 [^22]: \[C\] C'est une grande invocation. Il convient au musulman de s’y
     attacher et de la multiplier, car son nafs et sa guidée sont dans la
@@ -804,8 +804,8 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     \[C\] Comme le début de ce hadith l'indique, cette invocation fait
     partie des trésors les plus précieux et de grande valeur. Elle
     regroupe de multiples demandes diverses, dont le témoin argumentatif
-    dans ce contexte est la parole du Prophète : "Je Te demande un cœur
-    sain". Cette santé du cœur ne peut provenir que d'Allah, c'est
+    dans ce contexte est la parole du Prophète ﷺ : "Je Te demande un
+    cœur sain". Cette santé du cœur ne peut provenir que d'Allah, c'est
     pourquoi la personne qui désire le salut de son cœur doit multiplier
     les invocations, en particulier ces invocations prophétiques.
 
@@ -817,7 +817,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     Ibn Bashir, qu'Allah l'agrée : "Certes, dans le corps, il y a un
     morceau de chair : s’il est sain, tout le corps sera sain, et s’il
     est corrompu, tout le corps sera corrompu. Il s’agit certainement du
-    cœur". Quant à la langue, le Prophète a dit : "Lorsque le fils
+    cœur". Quant à la langue, le Prophète ﷺ a dit : "Lorsque le fils
     d'Adam atteint le matin, tous les membres implorent la langue. Ils
     disent : 'Crains Allah en ce qui nous concerne, car nous ne faisons
     que te suivre. Si tu es droit, nous serons droits ; mais si tu
