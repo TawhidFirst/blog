@@ -218,8 +218,8 @@ Allah.
 Ainsi, le cœur sain est celui qui a été préservé de contenir pour autre
 qu'Allah une quelconque forme de shirk ; il a adoré uniquement Allah par
 l'amour, la totale confiance, le repentir, l'humilité, la crainte
-empreinte de connaissance, et l'espoir. Il a œuvré uniquement pour Allah
-: ainsi, s'il aime, il n'aime qu'en Allah ; s'il déteste, il ne déteste
+empreinte de connaissance, et l'espoir. Il a œuvré uniquement pour Allah.
+Ainsi, s'il aime, il n'aime qu'en Allah ; s'il déteste, il ne déteste
 qu'en Allah ; s'il donne, il ne donne que pour Allah ; s'il interdit, il
 n'interdit que pour Allah. Et cela ne peut suffire tant qu'il n'est pas
 préservé de la soumission et du jugement de tout ennemi à Son messager.
