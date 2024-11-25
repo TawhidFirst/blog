@@ -340,6 +340,8 @@ Je demande à Allah qu'Il nous accorde la réussite dans tout bien, qu'Il
 réforme l'ensemble de nos états. Il est certes Celui qui entend, qui est
 proche et qui exauce.
 
+Traduction: Azwaw Abou 'Abd Al Razzaq
+
 [^1]: Rapporté par Al Bukhari (52) et Muslim (1599).
 
     \[C\] Ce hadith, qui est le premier hadith de ce livre, est rapporté
