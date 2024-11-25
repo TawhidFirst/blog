@@ -441,7 +441,7 @@ proche et qui exauce.
     interdits. C'est pour cette raison que le Prophète ﷺ a mentionné le
     cœur après avoir évoqué le licite et l’illicite." \[cf. Cours 10\]
 
-    \[Faïda\] Il est rapporté que Nu'man Ibn Bashir, qu'Allah les agrée,
+    Il est rapporté que Nu'man Ibn Bashir, qu'Allah les agrée,
     a transmis cent quatorze hadiths \[cf. Siyar A'lam Al-Nubala
     (3/411)\]. Dans d'autres cours, Cheikh 'Abd Al Razzaq Al Badr,
     qu'Allah le préserve, a souligné l'importance d'éduquer les enfants
@@ -659,7 +659,7 @@ proche et qui exauce.
     péché." \[Rapporté par Al Tirmidhi et authentifié par Cheikh Al
     Albani dans Sahih Al Jami' (7731)\].
 
-    \[Faïda\] Dans le hadith de Abu Hourayra, qu'Allah l'agrée, il a été
+    Dans le hadith de Abu Hourayra, qu'Allah l'agrée, il a été
     cité la tristesse (Al Housn), l'angoisse (Al Gham) et le souci (Al
     Ham). Ces trois états sont respectivement liés aux événements
     passés, présents et futurs. \[Cf. Explication de Tajrid Al Sarih Li
@@ -727,7 +727,7 @@ proche et qui exauce.
     \*\[NDT\] Cf. Madarij Al Salikin (2/366) de Ibn Al Qayyim et Sharh
     Al 'Aquidah Al Tahawiya d'Ibn Abi Al'Iz (200).
 
-    \[Faïda\] Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : "Le
+    Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : "Le
     cœur ne peut atteindre une pureté complète tant qu'il n'est pas
     préservé de cinq choses : le shirk, qui annule le tawhid,
     l'innovation, qui va à l'encontre de la sunnah, les désirs, qui
