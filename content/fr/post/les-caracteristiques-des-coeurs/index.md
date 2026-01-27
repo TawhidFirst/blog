@@ -40,11 +40,11 @@ Au nombre de ces attributs figurent :
 
 > En vérité, ce ne sont pas les yeux qui s'aveuglent, mais ce sont les cœurs dans les poitrines qui s'aveuglent. [Sourate 22, v.46]
 
-Cette cécité constitue la forme la plus absolue de l'aveuglement, ainsi que sa source première. Il s'agit d'une infirmité funeste en matière de religion, car elle occulte la vérité et empêche d'en percevoir l'évidente clarté, tout comme l'aveugle ne peut distinguer les formes visibles. Il ne s'agit nullement ici de nier la cécité physique [^6], puisque Allah a dit (dans le sens rapproché) :
+Cette cécité constitue la forme la plus absolue de l'aveuglement, ainsi que sa source première. Il s'agit d'une infirmité funeste en matière de religion, car elle occulte la vérité et empêche d'en percevoir l'évidente clarté, tout comme l'aveugle ne peut distinguer les formes visibles. Il ne s'agit nullement ici de nier la cécité physique [^6], puisque Allah a dit :
 
 > Il n'y a aucune restriction pour les aveugles. [Sourate 24, v.61]
 
-Et Il a également dit (dans le sens rapproché) :
+Et Il a également dit :
 
 > Il fronça les sourcils et se détourna, car l'aveugle vint à lui. [Sourate 80, v.1-2]
 
@@ -58,7 +58,7 @@ Le sens profond de ce verset est que la véritable cécité est celle du cœur -
 
 Loin de nier la réalité de ces termes, le sens de ces expressions désigne plutôt ceux qui en sont les plus dignes. Ainsi, dans le verset : « En vérité, ce ne sont pas les yeux qui s'aveuglent, mais ce sont les cœurs dans les poitrines qui s'aveuglent », l'aveuglement véritable est celui du cœur, celui qui prive l'homme de la lumière de la foi et de la clairvoyance spirituelle.
 
-2. Parmi ses attributs figure ce qui est mentionné dans la Parole d'Allah (dans le sens rapproché) :
+2. Parmi ses attributs figure ce qui est mentionné dans la Parole d'Allah :
 
 > Ou y a-t-il des cadenas sur les cœurs ? [Sourate 47, v.24]
 
@@ -66,7 +66,7 @@ Leurs cœurs sont cadenassés et voilés, de sorte que les sens du Coran ne les 
 
 3. Parmi ses attributs également : la fermeture et le scellement.
 
-Allah a dit (dans le sens rapproché) :
+Allah a dit :
 
 > Allah a fermé leurs cœurs. [Sourate 2, v.7]
 
@@ -95,7 +95,7 @@ C'est comme s'ils disaient : « Nous ne saisissons pas ta parole, nous ne l'ente
 
 Ibn 'Abbas, qu'Allah l'agrée, a dit : « Nos cœurs sont couverts de voiles, tel un carquois protégeant ses flèches. » [^14] Mujahid, qu'Allah lui fasse miséricorde, a dit : « Comme l'étui des flèches. » [^15] Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Ils [nos cœurs] sont couverts, et nous ne comprenons donc pas ce que tu dis. » [^16]
 
-5. Parmi ses caractéristiques figure ce qui est mentionné dans la parole d'Allah ﷾ (dans le sens rapproché) :
+5. Parmi ses caractéristiques figure ce qui est mentionné dans la parole d'Allah ﷾ :
 
 > Et ce jour-là, Nous ferons apparaître aux mécréants l'Enfer, bien visible. À ceux dont les yeux étaient sous un voile occultant Mon Rappel, et qui ne pouvaient supporter de l'entendre. [Sourate 18, v.100-101]
 
@@ -106,13 +106,13 @@ Ce verset revêt une double signification :
 
 C'est précisément ce voilement du cœur qui précède celui de la vue.
 
-6. Au nombre des attributs du cœur figure également ce qui est évoqué dans la parole d'Allah ﷾ (dans le sens rapproché) :
+6. Au nombre des attributs du cœur figure également ce qui est évoqué dans la parole d'Allah ﷾ :
 
 > Et ils disent : « Nos cœurs sont enveloppés ». Allah les a plutôt maudits à cause de leur mécréance, tant ils croient peu. [Sourate 2, v.88]
 
 > [Nous les avons maudits] en raison de leur rupture du pacte, de leur rejet des signes d'Allah, de leur meurtre injustifié des Prophètes, et de leur déclaration : « Nos cœurs sont enveloppés ». Allah a plutôt scellé leurs cœurs en raison de leur mécréance, de sorte qu'ils ne croient qu'un peu. [Sourate 4, v.155]
 
-Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas, qu'Allah l'agrée, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leurs cœurs furent créés dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant (dans le sens rapproché) : « Allah a plutôt scellé leurs cœurs en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
+Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas, qu'Allah l'agrée, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leurs cœurs furent créés dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant : « Allah a plutôt scellé leurs cœurs en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
 
 Allah a ainsi montré que le scellement des cœurs, ainsi que la privation de Sa grâce et de Sa guidée, résultent exclusivement de la mécréance qu'ils ont eux-mêmes choisie, la préférant à la foi. C'est en juste rétribution de leurs actes qu'Allah a scellé leurs cœurs et les a maudits. En d'autres termes : Nous n'avons pas créé vos cœurs voilés au point de vous rendre incapables de saisir ou de comprendre, tout en vous ordonnant une foi qui vous serait inaccessible. Au contraire, ce sont leurs propres agissements qui ont provoqué ce marquage et la fermeture de leurs cœurs. [^18]
 
@@ -124,17 +124,17 @@ Et dans Sa parole :
 
 > Quand tu récites le Coran, Nous mettons entre toi et ceux qui ne croient pas à l'au-delà un voile invisible. [Sourate 17, v.45]
 
-Allah interpose ainsi un écran entre eux et la récitation du Coran, ce qui les empêche de le comprendre, de le méditer et d'y adhérer. Ce sens est explicité dans Sa parole (dans le sens rapproché) :
+Allah interpose ainsi un écran entre eux et la récitation du Coran, ce qui les empêche de le comprendre, de le méditer et d'y adhérer. Ce sens est explicité dans Sa parole :
 
 > Certains d'entre eux viennent t'écouter, alors que Nous avons placé des voiles sur leurs cœurs, les empêchant de comprendre (le Coran), et que leurs oreilles sont lourdes. [Sourate 6, v.25]
 
-Ces trois entraves sont réunies dans Sa parole (dans le sens rapproché) :
+Ces trois entraves sont réunies dans Sa parole :
 
 > Ton message n'atteint pas nos cœurs enveloppés par des voiles, et nos oreilles y sont sourdes. Entre nous et toi se dresse un rideau. [Sourate 41, v.5]
 
 Allah a indiqué que cette conséquence émane de Lui [^19] : le rideau empêche de discerner la vérité, les voiles font obstacle à sa compréhension et la surdité rend toute écoute impossible. [^20]
 
-8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole d'Allah ﷾ (dans le sens rapproché) :
+8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole d'Allah ﷾ :
 
 > Non ! Mais sur leurs cœurs se trouve le Rân (un voile de péchés et de mauvaises actions) qu'ils avaient accumulé. [Sourate 83, v.14]
 
@@ -144,7 +144,7 @@ Mujâhid, qu'Allah lui fasse miséricorde, a dit : « C'est le péché qui s'ajo
 
 Dans les Sunan d'Al-Nasa-i et d'Al-Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
 
-> « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit (dans le sens rapproché) : \"Non ! Mais sur leurs cœurs se trouve le Rân qu'ils avaient accumulé\". »
+> « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit : \"Non ! Mais sur leurs cœurs se trouve le Rân qu'ils avaient accumulé\". »
 
 Al-Tirmidhi a qualifié ce hadith d'authentique.
 
