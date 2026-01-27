@@ -28,7 +28,7 @@ Il est primordial pour le musulman, tout en persévérant dans cette invocation,
 
 D'après Abu Musa Al-Ash'ari, qu'Allah l'agrée, le Prophète ﷺ a dit :
 
-> En vérité, le cœur est comme une plume dans une vaste étendue, que le vent emportent d'un côté à l'autre. [^4]
+> En vérité, le cœur est comme une plume dans une vaste étendue, que le vent emporte d'un côté à l'autre. [^4]
 
 Cette instabilité s'explique notamment par l'influence des Fitan (épreuves) sur les cœurs.
 
