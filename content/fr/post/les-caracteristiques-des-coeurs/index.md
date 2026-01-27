@@ -48,7 +48,7 @@ Et Il a également dit :
 
 > Il fronça les sourcils et se détourna, car l'aveugle vint à lui. [Sourate 80, v.1-2]
 
-Le sens profond de ce verset est que la véritable cécité est celle du cœur --- celle qui entrave la reconnaissance de la guidance --- au point que la cécité physique paraît dérisoire en comparaison. Ainsi, elle est parfois niée en raison de son imperfection et de sa faiblesse, à l'instar de ce que l'on trouve dans certaines paroles prophétiques :
+Le sens profond de ce verset est que la véritable cécité est celle du cœur (celle qui entrave la reconnaissance de la guidance) au point que la cécité physique paraît dérisoire en comparaison. Ainsi, elle est parfois niée en raison de son imperfection et de sa faiblesse, à l'instar de ce que l'on trouve dans certaines paroles prophétiques :
 
 - « Al-Riba est uniquement dans le crédit. » [^7]
 - « L'eau est uniquement pour l'eau. » [^8]
@@ -72,7 +72,7 @@ Allah a dit :
 
 > Allah a scellé leurs cœurs. [Sourate 16, v.108]
 
-La fermeture et le scellement consistent à recouvrir une chose de manière à empêcher toute intrusion. Si ces deux termes sont sémantiquement proches, le scellement se distingue en ce qu'il désigne une fermeture devenue nature et disposition -- un état durable dont l'homme ne peut plus se défaire. [^13]
+La fermeture et le scellement consistent à recouvrir une chose de manière à empêcher toute intrusion. Si ces deux termes sont sémantiquement proches, le scellement se distingue en ce qu'il désigne une fermeture devenue nature et disposition (un état durable dont l'homme ne peut plus se défaire). [^13]
 
 4. Parmi ses caractéristiques figure également ce qui a été évoqué dans la parole d'Allah ﷾ :
 
@@ -196,7 +196,7 @@ Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas,
 
 > Et quand une sourate est descendue, ils se regardent les uns les autres (en disant) : « Quelqu'un vous voit-il ? » Puis ils se détournent. Allah a détourné leurs cœurs parce qu'ils sont un peuple qui ne comprend rien. [Sourate 9, v.127]
 
-Allah ﷾ nous informe ici de leur acte -- le détournement -- et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
+Allah ﷾ nous informe ici de leur acte (le détournement) et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
 
 15. On trouve aussi leur déviation de la vérité, comme l'a dit Allah ﷾ :
 
