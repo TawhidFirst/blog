@@ -1,5 +1,6 @@
 ---
 title: Les caractéristiques des cœurs
+slug: les-caracteristiques-des-coeurs
 description: 15 maux du cœur à connaître pour s'en prémunir
 image: image.jpg
 draft: False
