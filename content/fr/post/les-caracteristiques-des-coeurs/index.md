@@ -14,19 +14,19 @@ categories:
 
 # Les caractéristiques des cœurs
 
-Ibn Majah rapporte, d'après Al-Nawwas ibn Sam'an, qu'Allah l'agrée :
+Ibn Majah rapporte, d'après Al-Nawwas ibn Sam'an ﵃ :
 
 > J'ai entendu le Messager d'Allah ﷺ dire : « Il n'est point de cœur qui ne se trouve entre deux doigts parmi les doigts du Tout-Miséricordieux. S'Il le veut, Il l'affermit dans la rectitude, et s'Il le veut, Il l'égare. » Le Messager d'Allah ﷺ ajoutait également : « Ô Toi qui raffermis les cœurs, affermis nos cœurs sur Ta religion. » [^1]
 
-L'Imam Ahmad rapporte d'après Umm Salama, qu'Allah l'agrée :
+L'Imam Ahmad rapporte d'après Umm Salama ﵃ :
 
 > Le Messager d'Allah ﷺ répétait fréquemment cette invocation : « Ô Toi qui retournes les cœurs, raffermis mon cœur sur Ta religion. » Je l'interrogeai alors : « Ô Messager d'Allah, les cœurs peuvent-ils donc vaciller ? » Il répondit : « Assurément. Il n'est aucune créature parmi les fils d'Adam dont le cœur ne soit entre deux Doigts parmi les Doigts d'Allah. S'Il le veut, Il le maintient sur la voie de la droiture, et s'Il le veut, Il l'égare. » Nous implorons donc Allah, notre Seigneur, de ne point laisser nos cœurs s'égarer après nous avoir guidés, et de nous octroyer Sa miséricorde, car Il est, certes, le Grand Donateur. [^2]
 
-Il est primordial pour le musulman, tout en persévérant dans cette invocation, de connaître la nature et les états des cœurs égarés. Cela lui permet de mesurer la valeur de la rectitude et de la protection dont il jouit, ainsi que l'étendue des maux et des altérations dont Allah l'a prémuni. Il louera alors Allah pour ce salut et Le priera sans relâche de préserver son cœur, de le protéger de l'égarement et de la déviation, surtout parce que le cœur est prompt à se détourner. D'après Miqdad ibn Al-Aswad, qu'Allah l'agrée :
+Il est primordial pour le musulman, tout en persévérant dans cette invocation, de connaître la nature et les états des cœurs égarés. Cela lui permet de mesurer la valeur de la rectitude et de la protection dont il jouit, ainsi que l'étendue des maux et des altérations dont Allah l'a prémuni. Il louera alors Allah pour ce salut et Le priera sans relâche de préserver son cœur, de le protéger de l'égarement et de la déviation, surtout parce que le cœur est prompt à se détourner. D'après Miqdad ibn Al-Aswad ﵃ :
 
 > J'ai entendu le Messager d'Allah dire : « Le cœur des fils d'Adam est plus changeant qu'une marmite en pleine ébullition. » [^3]
 
-D'après Abu Musa Al-Ash'ari, qu'Allah l'agrée, le Prophète ﷺ a dit :
+D'après Abu Musa Al-Ash'ari ﵃, le Prophète ﷺ a dit :
 
 > En vérité, le cœur est comme une plume dans une vaste étendue, que le vent emportent d'un côté à l'autre. [^4]
 
@@ -74,7 +74,7 @@ Allah a dit (dans le sens rapproché) :
 
 La fermeture et le scellement consistent à recouvrir une chose de manière à empêcher toute intrusion. Si ces deux termes sont sémantiquement proches, le scellement se distingue en ce qu'il désigne une fermeture devenue nature et disposition -- un état durable dont l'homme ne peut plus se défaire. [^13]
 
-4. Parmi ses caractéristiques figure également ce qui a été évoqué dans la parole du Très-Haut :
+4. Parmi ses caractéristiques figure également ce qui a été évoqué dans la parole d'Allah ﷾ :
 
 > Mais Nous avons jeté des voiles sur leurs cœurs, de sorte qu'ils ne comprennent pas, et une surdité dans leurs oreilles. Quand bien même ils verraient tous les signes, ils n'y croiraient pas. [Sourate 6, v.25]
 
@@ -93,9 +93,9 @@ Ils mentionnèrent ainsi trois types d'occultation :
 
 C'est comme s'ils disaient : « Nous ne saisissons pas ta parole, nous ne l'entendons pas, et nous ne te voyons pas. » Ou encore : « Je ne te considère que comme celui dont on ne comprend point les paroles et que l'on ne voit point. »
 
-Ibn 'Abbas, qu'Allah l'agrée, a dit : « Nos cœurs sont couverts de voiles, tel un carquois protégeant ses flèches. » [^14] Mujahid, qu'Allah lui fasse miséricorde, a dit : « Comme l'étui des flèches. » [^15] Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Ils [nos cœurs] sont couverts, et nous ne comprenons donc pas ce que tu dis. » [^16]
+Ibn 'Abbas ﵃, a dit : « Nos cœurs sont couverts de voiles, tel un carquois protégeant ses flèches. » [^14] Mujahid ﵀, a dit : « Comme l'étui des flèches. » [^15] Muqâtil ﵀, a dit : « Ils [nos cœurs] sont couverts, et nous ne comprenons donc pas ce que tu dis. » [^16]
 
-5. Parmi ses caractéristiques figure ce qui est mentionné dans la parole du Très-Haut (dans le sens rapproché) :
+5. Parmi ses caractéristiques figure ce qui est mentionné dans la parole d'Allah ﷾ (dans le sens rapproché) :
 
 > Et ce jour-là, Nous ferons apparaître aux mécréants l'Enfer, bien visible. À ceux dont les yeux étaient sous un voile occultant Mon Rappel, et qui ne pouvaient supporter de l'entendre. [Sourate 18, v.100-101]
 
@@ -106,17 +106,17 @@ Ce verset revêt une double signification :
 
 C'est précisément ce voilement du cœur qui précède celui de la vue.
 
-6. Au nombre des attributs du cœur figure également ce qui est évoqué dans la parole du Très-Haut (dans le sens rapproché) :
+6. Au nombre des attributs du cœur figure également ce qui est évoqué dans la parole d'Allah ﷾ (dans le sens rapproché) :
 
 > Et ils disent : « Nos cœurs sont enveloppés ». Allah les a plutôt maudits à cause de leur mécréance, tant ils croient peu. [Sourate 2, v.88]
 
 > [Nous les avons maudits] en raison de leur rupture du pacte, de leur rejet des signes d'Allah, de leur meurtre injustifié des Prophètes, et de leur déclaration : « Nos cœurs sont enveloppés ». Allah a plutôt scellé leurs cœurs en raison de leur mécréance, de sorte qu'ils ne croient qu'un peu. [Sourate 4, v.155]
 
-Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas, qu'Allah l'agrée, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leurs cœurs furent créés dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant (dans le sens rapproché) : « Allah a plutôt scellé leurs cœurs en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
+Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas ﵃, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leurs cœurs furent créés dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant (dans le sens rapproché) : « Allah a plutôt scellé leurs cœurs en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
 
 Allah a ainsi montré que le scellement des cœurs, ainsi que la privation de Sa grâce et de Sa guidée, résultent exclusivement de la mécréance qu'ils ont eux-mêmes choisie, la préférant à la foi. C'est en juste rétribution de leurs actes qu'Allah a scellé leurs cœurs et les a maudits. En d'autres termes : Nous n'avons pas créé vos cœurs voilés au point de vous rendre incapables de saisir ou de comprendre, tout en vous ordonnant une foi qui vous serait inaccessible. Au contraire, ce sont leurs propres agissements qui ont provoqué ce marquage et la fermeture de leurs cœurs. [^18]
 
-7. Parmi ces obstacles figure le voile. Celui-ci est évoqué dans la parole du Très-Haut [rapportant leurs propres propos] :
+7. Parmi ces obstacles figure le voile. Celui-ci est évoqué dans la parole d'Allah ﷾ [rapportant leurs propres propos] :
 
 > Entre nous et toi se dresse un rideau. [Sourate 41, v.5]
 
@@ -134,23 +134,23 @@ Ces trois entraves sont réunies dans Sa parole (dans le sens rapproché) :
 
 Allah a indiqué que cette conséquence émane de Lui [^19] : le rideau empêche de discerner la vérité, les voiles font obstacle à sa compréhension et la surdité rend toute écoute impossible. [^20]
 
-8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole du Très-Haut (dans le sens rapproché) :
+8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole d'Allah ﷾ (dans le sens rapproché) :
 
 > Non ! Mais sur leurs cœurs se trouve le Rân (un voile de péchés et de mauvaises actions) qu'ils avaient accumulé. [Sourate 83, v.14]
 
 Ce voile a recouvert leurs cœurs en raison de la profusion de leurs péchés et de leurs désobéissances, jusqu'à les cerner entièrement. Il compte parmi les voiles les plus épais et les plus opaques qui puissent affecter le cœur.
 
-Mujâhid, qu'Allah lui fasse miséricorde, a dit : « C'est le péché qui s'ajoute au péché jusqu'à cerner le cœur et l'envelopper ; c'est ainsi que le cœur meurt. » Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Leurs mauvaises actions ont submergé leurs cœurs. »
+Mujâhid ﵀, a dit : « C'est le péché qui s'ajoute au péché jusqu'à cerner le cœur et l'envelopper ; c'est ainsi que le cœur meurt. » Muqâtil ﵀, a dit : « Leurs mauvaises actions ont submergé leurs cœurs. »
 
-Dans les Sunan d'Al-Nasa-i et d'Al-Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
+Dans les Sunan d'Al-Nasa-i et d'Al-Tirmidhi, Abu Hurayra ﵃, rapporte que le Messager d'Allah ﷺ a dit :
 
 > « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit (dans le sens rapproché) : \"Non ! Mais sur leurs cœurs se trouve le Rân qu'ils avaient accumulé\". »
 
 Al-Tirmidhi a qualifié ce hadith d'authentique.
 
-'Abd Allah ibn Mas'ud, qu'Allah l'agrée, a dit : « À chaque péché, un point noir est inscrit sur son cœur, jusqu'à ce qu'il soit entièrement noirci. »
+'Abd Allah ibn Mas'ud ﵃, a dit : « À chaque péché, un point noir est inscrit sur son cœur, jusqu'à ce qu'il soit entièrement noirci. »
 
-Allah, Pureté à Lui, a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leurs cœurs.
+Allah ﷾, a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leurs cœurs.
 
 9. Parmi elles : la surdité et l'alourdissement de l'ouïe, comme dans Sa parole, Exalté soit-Il :
 
@@ -162,43 +162,43 @@ Allah, Pureté à Lui, a ainsi révélé que les péchés qu'ils ont commis ont 
 
 > Quant à ceux qui ne croient pas, il y a une lourdeur (surdité) dans leurs oreilles, et ils restent aveugles face au Coran ; ils sont appelés depuis un lieu lointain. [Sourate 41, v.44]
 
-Ibn 'Abbas, qu'Allah les agrée tous deux, a dit : « Leurs oreilles sont sourdes à l'écoute du Coran, et ils restent aveugles face à lui. Allah a aveuglé leurs cœurs, si bien qu'ils ne comprennent pas. Ils sont appelés depuis un lieu lointain, comme le bétail qui ne comprend que l'appel et le cri. » Mujahid a ajouté : « Loin de leurs cœurs », signifiant qu'ils n'écoutent ni ne comprennent, à l'instar de celui qu'on interpelle de très loin : il ne peut ni entendre distinctement, ni saisir le sens du message. [^21]
+Ibn 'Abbas ﵄, a dit : « Leurs oreilles sont sourdes à l'écoute du Coran, et ils restent aveugles face à lui. Allah a aveuglé leurs cœurs, si bien qu'ils ne comprennent pas. Ils sont appelés depuis un lieu lointain, comme le bétail qui ne comprend que l'appel et le cri. » Mujahid a ajouté : « Loin de leurs cœurs », signifiant qu'ils n'écoutent ni ne comprennent, à l'instar de celui qu'on interpelle de très loin : il ne peut ni entendre distinctement, ni saisir le sens du message. [^21]
 
-10. Parmi ses conséquences figure également la mutité. Allah le Très-Haut a dit :
+10. Parmi ses conséquences figure également la mutité. Allah ﷾ a dit :
 
 > Sourds, muets [Bukmun]... [Sourate 2, v.18]
 
-**Al-Bukm** est le pluriel d'**Abkam**, terme désignant celui qui est incapable de parler. La mutité revêt deux formes : celle du cœur et celle de la langue ; de même que la parole procède du cœur ou de la langue. La plus grave des deux est la mutité du cœur, tout comme sa cécité et sa surdité s'avèrent bien plus profondes que celles des sens physiques. C'est pourquoi Allah, Pureté à Lui, les a décrits comme étant incapables de saisir la vérité par le cœur ou de la proclamer par la langue.
+**Al-Bukm** est le pluriel d'**Abkam**, terme désignant celui qui est incapable de parler. La mutité revêt deux formes : celle du cœur et celle de la langue ; de même que la parole procède du cœur ou de la langue. La plus grave des deux est la mutité du cœur, tout comme sa cécité et sa surdité s'avèrent bien plus profondes que celles des sens physiques. C'est pourquoi Allah ﷾, les a décrits comme étant incapables de saisir la vérité par le cœur ou de la proclamer par la langue.
 
-Le savoir parvient au serviteur par trois portes : son ouïe, sa vue et son cœur. Or, ces trois portes leur ont été fermées : l'ouïe s'est corrompue par la surdité, la vue par la cécité, et le cœur par la mutité. Cela rejoint la parole du Très-Haut : « Ils ont des cœurs, mais ne comprennent pas. Ils ont des yeux, mais ne voient pas. Ils ont des oreilles, mais n'entendent pas. » [Sourate 7, v.179]. Il a, Pureté à Lui, réuni ces trois facultés dans Sa parole : « Et Nous les avons dotés de l'ouïe, de la vue et de cœurs, mais ni leur ouïe, ni leurs yeux, ni leurs cœurs ne leur ont profité en quoi que ce soit, parce qu'ils niaient les signes d'Allah. » [Sourate 46, v.26]. Ainsi, lorsqu'Allah veut guider un serviteur, Il lui ouvre le cœur, l'ouïe et la vue. Mais s'Il veut son égarement, Il le rend sourd, aveugle et muet.
+Le savoir parvient au serviteur par trois portes : son ouïe, sa vue et son cœur. Or, ces trois portes leur ont été fermées : l'ouïe s'est corrompue par la surdité, la vue par la cécité, et le cœur par la mutité. Cela rejoint la parole d'Allah ﷾ : « Ils ont des cœurs, mais ne comprennent pas. Ils ont des yeux, mais ne voient pas. Ils ont des oreilles, mais n'entendent pas. » [Sourate 7, v.179]. Il ﷾ a réuni ces trois facultés dans Sa parole : « Et Nous les avons dotés de l'ouïe, de la vue et de cœurs, mais ni leur ouïe, ni leurs yeux, ni leurs cœurs ne leur ont profité en quoi que ce soit, parce qu'ils niaient les signes d'Allah. » [Sourate 46, v.26]. Ainsi, lorsqu'Allah veut guider un serviteur, Il lui ouvre le cœur, l'ouïe et la vue. Mais s'Il veut son égarement, Il le rend sourd, aveugle et muet.
 
 11. Parmi ces caractéristiques figure l'enveloppement [**Al-Ghishawa**].
 
-Il s'agit du voile posé sur l'œil, comme l'a dit Allah le Très-Haut :
+Il s'agit du voile posé sur l'œil, comme l'a dit Allah ﷾ :
 
 > Nous avons mis un voile sur sa vue. [Sourate 45, v.23]
 
 Ce voile oculaire émane en réalité de celui qui recouvre le cœur, car le bien ou le mal que recèle le cœur se manifeste inévitablement dans le regard. L'œil est ainsi le miroir du cœur, laissant transparaître tout ce qu'il renferme.
 
-12. Une autre de leurs caractéristiques est le détournement du chemin, de sorte qu'on ne puisse l'apercevoir. Le Très-Haut a dit :
+12. Une autre de leurs caractéristiques est le détournement du chemin, de sorte qu'on ne puisse l'apercevoir. Allah ﷾ a dit :
 
 > C'est ainsi que la mauvaise action de Pharaon lui a été embellie et qu'il a été détourné du chemin. [Sourate 40, v.37]
 
 Autrement dit : il fut détourné de la vérité et de la guidée à cause du faux qui lui a été enjolivé.
 
-13. On compte aussi parmi elles l'endurcissement du cœur, tel qu'évoqué dans la parole du Très-Haut, Exalté soit-Il :
+13. On compte aussi parmi elles l'endurcissement du cœur, tel qu'évoqué dans la parole d'Allah ﷾, Exalté soit-Il :
 
 > Et Mussa dit : « Ô notre Seigneur, Tu as accordé à Pharaon et à ses notables des parures et des richesses dans la vie présente pour que, ô notre Seigneur, ils égarent les gens de Ton chemin. Ô notre Seigneur, anéantis leurs richesses et endurcis leurs cœurs, afin qu'ils ne croient pas jusqu'à ce qu'ils voient le châtiment douloureux ». Il dit : « Votre prière est exaucée. Restez tous deux sur le droit chemin ». [Sourate 10, v.88-89]
 
-Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas, qu'Allah l'agrée, a dit : « Il veut dire : prive-les », le sens étant : endurcis leurs cœurs et scelle-les afin qu'ils ne s'adoucissent point et ne s'ouvrent point à la foi. [^22]
+Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas ﵃, a dit : « Il veut dire : prive-les », le sens étant : endurcis leurs cœurs et scelle-les afin qu'ils ne s'adoucissent point et ne s'ouvrent point à la foi. [^22]
 
-14. Figure également le détournement, comme l'a dit le Très-Haut :
+14. Figure également le détournement, comme l'a dit Allah ﷾ :
 
 > Et quand une sourate est descendue, ils se regardent les uns les autres (en disant) : « Quelqu'un vous voit-il ? » Puis ils se détournent. Allah a détourné leurs cœurs parce qu'ils sont un peuple qui ne comprend rien. [Sourate 9, v.127]
 
-Allah, Pureté à Lui, nous informe ici de leur acte -- le détournement -- et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
+Allah ﷾, nous informe ici de leur acte -- le détournement -- et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
 
-15. On trouve aussi leur déviation de la vérité, comme l'a dit le Très-Haut :
+15. On trouve aussi leur déviation de la vérité, comme l'a dit Allah ﷾ :
 
 > Puis, quand ils dévièrent, Allah fit dévier leurs cœurs. [Sourate 61, v.5]
 
@@ -208,7 +208,7 @@ Allah, Pureté à Lui, nous informe ici de leur acte -- le détournement -- et d
 
 L'étymologie du mot **Zaygh** (déviance) désigne l'inclinaison. On dit ainsi : « le soleil a dévié (**zaaghat**) » lorsqu'il amorce son déclin. L'égarement du cœur consiste donc à le faire dévier ; sa déviance est son inclinaison hors de la guidance vers l'égarement.
 
-Enfin, parmi ces caractéristiques, se trouve la mort des cœurs, conformément à la parole du Très-Haut :
+Enfin, parmi ces caractéristiques, se trouve la mort des cœurs, conformément à la parole d'Allah ﷾ :
 
 > Certes, tu ne fais pas entendre les morts. [Sourate 27, v.80]
 
@@ -232,25 +232,25 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Cheikh 'Abd Al Muhsin Al 'Abbad, qu'Allah le préserve, a dit dans son explication des Sunan d'Ibn Majah :
 
-    « Ce hadith affirme l'attribut des Doigts d'Allah, Puissant et Majestueux soit-Il, et ils sont, à l'instar des autres attributs, affirmés d'une manière qui sied à Allah, Gloire et Pureté à Lui, sans chercher à définir le comment (Takyif), ni à la ressemblance (Tamthil), de même que sans altération (Tahrif), ni négation (Ta'til), ni interprétation allégorique (Ta'wil). Au contraire, tous Ses attributs relèvent de la même approche : ils sont affirmés d'une manière qui sied à Allah, Puissant et Majestueux soit-Il, conformément à Sa parole :
+    « Ce hadith affirme l'attribut des Doigts d'Allah ﷿, et ils sont, à l'instar des autres attributs, affirmés d'une manière qui sied à Allah ﷾, sans chercher à définir le comment (Takyif), ni à la ressemblance (Tamthil), de même que sans altération (Tahrif), ni négation (Ta'til), ni interprétation allégorique (Ta'wil). Au contraire, tous Ses attributs relèvent de la même approche : ils sont affirmés d'une manière qui sied à Allah ﷿, conformément à Sa parole :
 
     > « Rien ne Lui ressemble, et c'est Lui l'Audient, le Clairvoyant. » [Sourate 42, v.11]
 
-    Ainsi, ce qui est dit d'un de Ses attributs s'applique à tous les autres. C'est-à-dire : ils sont tous affirmés selon ce qui sied à Allah, tout en exemptant Allah, Puissant et Majestueux soit-Il, de toute ressemblance avec Ses créatures.
+    Ainsi, ce qui est dit d'un de Ses attributs s'applique à tous les autres. C'est-à-dire : ils sont tous affirmés selon ce qui sied à Allah, tout en exemptant Allah ﷿, de toute ressemblance avec Ses créatures.
 
     Le Messager d'Allah ﷺ disait dans son invocation : « Ô Toi qui affermis les cœurs, affermis nos cœurs sur Ta religion. » Car les cœurs sont entre deux doigts parmi les Doigts du Tout-Miséricordieux, Il les retourne comme Il le veut.
 
-    Et il demandait à Allah, Puissant et Majestueux soit-Il, l'affermissement des cœurs sur Sa religion.
+    Et il demandait à Allah ﷿, l'affermissement des cœurs sur Sa religion.
 
-    S'Il le veut, Il maintient le cœur droit, le plaçant avec rectitude sur la voie, empli de la crainte d'Allah, Puissant et Majestueux soit-Il.
+    S'Il le veut, Il maintient le cœur droit, le plaçant avec rectitude sur la voie, empli de la crainte d'Allah ﷿.
 
-    Et s'Il le veut, Il le fait dévier, l'écartant de la vérité. Tel est le sens de l'égarement des cœurs : leur inclinaison et leur détournement de la rectitude, ainsi que l'a dit le Puissant et Majestueux :
+    Et s'Il le veut, Il le fait dévier, l'écartant de la vérité. Tel est le sens de l'égarement des cœurs : leur inclinaison et leur détournement de la rectitude, ainsi que l'a dit Allah ﷿ :
 
     > « Puis, quand ils dévièrent, Allah fit dévier leurs cœurs. » [Sourate 61, v.5]
 
     Lorsqu'ils dévièrent, ils furent châtiés par une déviation accrue en plus de la première.
 
-    Car le péché appelle le péché, tout comme la bonne action appelle la bonne action. Parmi les récompenses de la bonne action figure la bonne action qui la suit, et parmi les châtiments du péché figure l'épreuve d'un péché ultérieur. S'Il le veut, Il le maintient droit, et s'Il le veut, Il le fait dévier. S'Il le veut, Il le maintient droit de sorte qu'il soit ferme dans l'obéissance à Allah et dans ce qu'Allah a légiféré. Ou bien Il le fait dévier de la vérité et de la guidance, l'inclinant vers les autres sentiers qui s'écartent du chemin droit, comme l'a dit Allah, Puissant et Majestueux soit-Il :
+    Car le péché appelle le péché, tout comme la bonne action appelle la bonne action. Parmi les récompenses de la bonne action figure la bonne action qui la suit, et parmi les châtiments du péché figure l'épreuve d'un péché ultérieur. S'Il le veut, Il le maintient droit, et s'Il le veut, Il le fait dévier. S'Il le veut, Il le maintient droit de sorte qu'il soit ferme dans l'obéissance à Allah et dans ce qu'Allah a légiféré. Ou bien Il le fait dévier de la vérité et de la guidance, l'inclinant vers les autres sentiers qui s'écartent du chemin droit, comme l'a dit Allah ﷿ :
 
     > « Et voilà Mon chemin dans toute sa rectitude, suivez-le donc, et ne suivez pas les sentiers qui vous écartent de Sa voie. » [Sourate 6, v.153]
 
@@ -258,9 +258,9 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Le Cheikh, qu'Allah le préserve, ajoute également, comme clarification à une ambiguité que certains utilisent pour nier la réalité de cet attribut d'essence :
 
-    « Et le fait de dire que les cœurs sont entre ces deux Doigts parmi les Doigts du Tout-Miséricordieux ne signifie pas qu'il y ait contact entre les cœurs et les Doigts. En effet, Allah, Puissant et Majestueux soit-Il, tient toute chose dans Sa Main, et toute chose relève de Sa volonté et de Son vouloir.
+    « Et le fait de dire que les cœurs sont entre ces deux Doigts parmi les Doigts du Tout-Miséricordieux ne signifie pas qu'il y ait contact entre les cœurs et les Doigts. En effet, Allah ﷿, tient toute chose dans Sa Main, et toute chose relève de Sa volonté et de Son vouloir.
 
-    Or il est connu qu'Allah, Puissant et Majestueux soit-Il, a dit :
+    Or il est connu qu'Allah ﷿, a dit :
 
     > « ...et les nuages assujettis entre le ciel et la terre » [Sourate 2, v.164]
 
@@ -284,7 +284,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Le Prophète ﷺ invoquait Allah en disant : « Ô Toi qui raffermis les cœurs, raffermis mon cœur sur Ta religion. »
 
-    Dans le hadith rapporté par Umm Salama, qu'Allah l'agrée, il a également dit : « Nous demandons donc à Allah, notre Seigneur, qu'Il ne détourne pas nos cœurs après les avoir guidés et qu'Il nous accorde Sa miséricorde, car c'est Lui, certes, le Grand Donateur. »
+    Dans le hadith rapporté par Umm Salama ﵃, il a également dit : « Nous demandons donc à Allah, notre Seigneur, qu'Il ne détourne pas nos cœurs après les avoir guidés et qu'Il nous accorde Sa miséricorde, car c'est Lui, certes, le Grand Donateur. »
 
     Cette invocation est mentionnée dans le Coran, au début de la sourate Âl 'Imrân :
 
@@ -310,9 +310,9 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Alors que dire de notre besoin d'Allah pour ce raffermissement des cœurs sur la vérité.
 
-    Si le Prophète ﷺ craignait pour ses nobles Compagnons, ceux qui ont atteint les plus hauts degrés de la foi, alors que dire de ceux qui les ont suivis. D'après Anas ibn Malik, qu'Allah l'agrée, le Messager d'Allah ﷺ répétait souvent cette invocation : « Ô Toi qui retournes les cœurs, affermis mon cœur dans Ta religion ! » Je lui dis alors : « Ô Prophète d'Allah, nous avons cru en toi et en ce que tu as apporté, crains-tu donc pour nous ? » Le Messager d'Allah ﷺ répondit : « Oui, car les cœurs sont entre deux doigts parmi les doigts d'Allah. Il les retourne comme Il veut. » [Rapporté par Al Tirmidhi (2140) et jugé bon par Al Albani, Hidayat Al Ruwat (98)]
+    Si le Prophète ﷺ craignait pour ses nobles Compagnons, ceux qui ont atteint les plus hauts degrés de la foi, alors que dire de ceux qui les ont suivis. D'après Anas ibn Malik ﵃, le Messager d'Allah ﷺ répétait souvent cette invocation : « Ô Toi qui retournes les cœurs, affermis mon cœur dans Ta religion ! » Je lui dis alors : « Ô Prophète d'Allah, nous avons cru en toi et en ce que tu as apporté, crains-tu donc pour nous ? » Le Messager d'Allah ﷺ répondit : « Oui, car les cœurs sont entre deux doigts parmi les doigts d'Allah. Il les retourne comme Il veut. » [Rapporté par Al Tirmidhi (2140) et jugé bon par Al Albani, Hidayat Al Ruwat (98)]
 
-    Al Qurtubi, qu'Allah lui fasse miséricorde, après avoir cité le hadith de 'Aisha, qu'Allah l'agrée, qui évoque cette réalité des cœurs qui sont entre deux doigts d'Allah, dit :
+    Al Qurtubi ﵀, après avoir cité le hadith de 'Aisha ﵃, qui évoque cette réalité des cœurs qui sont entre deux doigts d'Allah, dit :
 
     « Et puisque la guidée relève d'Allah seul, que la droiture est suspendue à Sa volonté, que l'issue finale demeure voilée et que le décret divin est irrésistible, alors ne t'enorgueillis pas de ta foi, de tes œuvres, de ta prière, de ton jeûne ni de l'ensemble de tes actes de dévotion. Car tout cela, bien qu'il relève de ton acquisition, n'en est pas moins la création de ton Seigneur, Sa faveur répandue sur toi et Son bienfait. Ainsi, chaque fois que tu t'en glorifies, tu ressembles à celui qui se vante d'un bien appartenant à autrui. Et peut-être te le retirera-t-Il, de sorte que ton cœur se retrouvera plus vide de tout bien que le ventre d'un chameau creux. Combien de jardins dont les fleurs étaient, le soir venu, fraîches et luxuriantes, se sont réveillés au matin avec des fleurs desséchées et brisées, ou sur lesquels a soufflé le vent stérile. Il en va de même du serviteur : il passe la nuit le cœur illuminé et sain par l'obéissance à Allah, puis se réveille le matin le cœur assombri et malade par la désobéissance. Telle est l'œuvre du Tout-Puissant, du Sage, du Créateur, de l'Omniscient. » [Kitab al-Tadhkira bi-ahwal al-mawta wa-umur al-akhira (1/197)]
 
@@ -326,13 +326,13 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     [NDT] Dans d'autres versions du hadith, le terme « vents » est employé au pluriel, ce qui renforce encore l'image de fragilité : celle d'une feuille (du cœur) légère et vulnérable, livrée à des vents multiples, soufflant de directions opposées et de forces inégales. Tantôt portée, tantôt ballotée, elle ne dispose d'aucune prise stable et se trouve constamment exposée aux variations qui la dominent.
 
-[^5]: Pour plus de détails, se référer à Shifa Al 'Alil de Ibn Al Qayyim, qu'Allah lui fasse miséricorde (1/299-331).
+[^5]: Pour plus de détails, se référer à Shifa Al 'Alil de Ibn Al Qayyim ﵀ (1/299-331).
 
     [C] Le Coran renferme de nombreux versets qui citent les caractéristiques des cœurs malades. Ibn Al Qayyim a longuement discuté de ce sujet dans son livre Shifa Al 'Alil et sur lequel s'appuie la synthèse qui suit.
 
 [^6]: [NDT] En réalité, cette cécité physique peut devenir une source de récompense pour le croyant touché par ce handicap. Il accepte le décret d'Allah sur lui avec reconnaissance et patience, aspirant, par cette soumission, à la récompense. Ici-bas, Allah lui allège cette perte en aiguisant ses autres sens, et dans l'au-delà, le Paradis, dont la plus infime place surpasse cette terre et tout ce qu'elle renferme. Que dire alors du bienfait suprême qui sera accordé à ses habitants : la vision d'Allah.
 
-    Al Bukhari rapporte dans son Sahih, dans le chapitre sur le mérite de celui qui a perdu la vue, selon Anas ibn Malik, qu'Allah l'agrée, que le Prophète ﷺ a dit :
+    Al Bukhari rapporte dans son Sahih, dans le chapitre sur le mérite de celui qui a perdu la vue, selon Anas ibn Malik ﵃, que le Prophète ﷺ a dit :
 
     « Allah a dit : \"Si Je prive Mon serviteur de ses deux choses les plus chères (c'est-à-dire ses yeux) et qu'il reste patient, Je le laisserai entrer au Paradis en compensation de celles-ci.\" »
 
@@ -362,13 +362,13 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
 [^18]: [NDT] Ce sujet est d'une grande importance, car il touche à la foi en Allah et à Son décret. De nombreuses personnes se sont égarées en niant la réalité de ces actions d'Allah, tandis que d'autres ont été saisies de doutes ou ont nourri de mauvaises opinions. Allah a expliqué à plusieurs reprises dans le Coran que les obstacles placés sur les cœurs, les oreilles et les yeux ne sont pas arbitraires, mais constituent une conséquence et un châtiment proportionné à leur choix volontaire de l'incrédulité et du rejet des messagers. Ainsi, le scellement, la fermeture, etc., du cœur sont la sanction de leur refus et de leur mépris antérieur de la vérité.
 
-    Ibn Al Qayyim a dit dans Madarij Al Salikin (1/66) : \"Le Très-Haut a dit : « Il n'appartient pas à Allah d'égarer un peuple après qu'Il l'a guidé, jusqu'à ce qu'Il lui ait clairement exposé ce qu'il doit craindre » [Sourate 9, v.115]. Cet égarement est donc un châtiment de Sa part à leur égard : alors qu'Il leur avait apporté la clarté, ils n'acceptèrent pas ce qu'Il leur avait exposé et n'en firent rien, Il les a alors punis en les détournant de la guidée. Allah, pureté à Lui, n'a jamais égaré quiconque sans avoir préalablement reçut cette démonstration.
+    Ibn Al Qayyim a dit dans Madarij Al Salikin (1/66) : \"Allah ﷾ a dit : « Il n'appartient pas à Allah d'égarer un peuple après qu'Il l'a guidé, jusqu'à ce qu'Il lui ait clairement exposé ce qu'il doit craindre » [Sourate 9, v.115]. Cet égarement est donc un châtiment de Sa part à leur égard : alors qu'Il leur avait apporté la clarté, ils n'acceptèrent pas ce qu'Il leur avait exposé et n'en firent rien, Il les a alors punis en les détournant de la guidée. Allah ﷾, n'a jamais égaré quiconque sans avoir préalablement reçut cette démonstration.
 
     Si tu comprends cela, tu sauras le secret du décret, et de nombreux doutes et soupçons se dissiperont dans ce chapitre. Tu comprendras également la sagesse d'Allah dans l'égarement de ceux de Ses serviteurs qu'Il égare. Le Coran affirme cela à plusieurs reprises, telle Sa parole : « Et lorsqu'ils dévièrent, Allah fit dévier leurs cœurs » [Sourate 61, v.5], et Sa parole : « Et de leur déclaration : \"Nos cœurs sont enveloppés\". Allah a plutôt scellé leurs cœurs en raison de leur mécréance » [Sourate 4, v.155]. Le premier cas relève de la mécréance par entêtement, le second de la mécréance par scellement.
 
     Et Sa parole : « Et Nous détournerons leurs cœurs et leurs yeux (de la guidée), car ils ont refusé d'y croire pour la première fois, et Nous les laisserons errer aveuglément dans leur transgression. » [Sourate 6, v.110]. Il les a donc punis pour avoir abandonné la foi en Lui après qu'elle leur fut apparue clairement et qu'ils en eurent la certitude, en détournant leurs cœurs et leurs regards, si bien qu'ils ne trouvèrent plus la guidée. Médite ce passage avec soin, car c'est un sujet d'une importance majeure.\"
 
-[^19]: [C] Toute chose bien ou mauvaise présente dans le cœur ne peut provenir que d'Allah. C'est pourquoi la personne doit s'orienter, implorer Allah pour qu'Il place dans son cœur le bien et qu'Il repousse tout mal. Mutarif ibn 'Abdillah ibn Shighir, qu'Allah lui fasse miséricorde, qui compte parmi les Tabi'in, a dit : « Si l'on sortait mon cœur et le plaçait dans ma main gauche, et que le bien dans son intégralité était placé dans ma main droite, je ne pourrais introduire quoi que ce soit dans mon cœur, si ce n'est qu'Allah l'y place. » [cf. Hilyat al-Awliya (2/201), Siyar A'lam Al Nubala (4/190)]
+[^19]: [C] Toute chose bien ou mauvaise présente dans le cœur ne peut provenir que d'Allah. C'est pourquoi la personne doit s'orienter, implorer Allah pour qu'Il place dans son cœur le bien et qu'Il repousse tout mal. Mutarif ibn 'Abdillah ibn Shighir ﵀, qui compte parmi les Tabi'in, a dit : « Si l'on sortait mon cœur et le plaçait dans ma main gauche, et que le bien dans son intégralité était placé dans ma main droite, je ne pourrais introduire quoi que ce soit dans mon cœur, si ce n'est qu'Allah l'y place. » [cf. Hilyat al-Awliya (2/201), Siyar A'lam Al Nubala (4/190)]
 
     C'est le cas de la foi, l'obéissance et l'adoration :
 
@@ -394,7 +394,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Tout ce qui advient, qu'il soit favorable ou non, se réalise par Sa volonté. Si un bien nous atteint, c'est par Sa grâce ; et si un mal nous touche, c'est selon Sa justice.
 
-    Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit dans Zad al-Ma'ad (3/278), à propos de la parole d'Allah :
+    Ibn Al Qayyim ﵀, a dit dans Zad al-Ma'ad (3/278), à propos de la parole d'Allah :
 
     > « Tout bien qui t'atteint vient d'Allah, et tout mal qui te frappe vient de toi-même. » [Sourate 4, v.79]
 
@@ -412,7 +412,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     > « Je n'ai créé les djinns et les hommes que pour qu'ils M'adorent. » [Sourate 51, v.56]
 
-    Les animaux connaissent la raison de leur création et œuvrent à sa réalisation. Il est rapporté du hadith d'Abu Hurayra, qu'Allah l'agrée, que le Prophète ﷺ a dit :
+    Les animaux connaissent la raison de leur création et œuvrent à sa réalisation. Il est rapporté du hadith d'Abu Hurayra ﵃, que le Prophète ﷺ a dit :
 
     « Tandis qu'un homme conduisait une vache, il monta sur son dos et la frappa. Elle dit alors : "Nous n'avons pas été créés pour cela, nous avons seulement été créés pour labourer." » [Rapporté par Al Bukhari (3471)]
 
@@ -420,7 +420,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Quant à eux, malgré les facultés de raison et de discernement qui leur sont accordées, ils s'adonnent à ce qui leur est nuisible et délaissent, voire combattent, ce qui leur est profitable. Là où les fourmis écoutèrent l'avertissement et se hâtèrent vers la protection et le salut, eux le démentent et se précipitent vers la perdition de l'au-delà. Allah les appelle à se réfugier dans les demeures de la félicité éternelle, mais ils refusent cette protection, s'en détournent volontairement et préfèrent emprunter les voies de l'égarement, lesquelles mènent inévitablement à leur perte.
 
-    Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit dans Madarij Al Salikin (3/188-189) :
+    Ibn Al Qayyim ﵀, a dit dans Madarij Al Salikin (3/188-189) :
 
     « Les cinq sens possèdent une forme et un esprit, et leur esprit constitue la part du cœur et sa véritable portion. Parmi les hommes, il en est dont le cœur n'en reçoit aucune part, si ce n'est celle qu'en reçoivent les bestiaux. Il se trouve ainsi à leur rang, et entre lui et elles ne subsiste que le premier degré de l'humanité. C'est pour cette raison qu'Allah les a comparés au bétail, allant même jusqu'à les déclarer plus égarés encore. Ainsi a-t-Il dit :
 
@@ -449,7 +449,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     « Il existe des terres qui sont bonnes, lorsque Nous y faisons descendre l'eau, elles produisent leur végétation avec la permission de leur Seigneur. Et il en est d'autres qui sont mauvaises, qui ne produisent leur végétation qu'en très faible quantité, sans utilité réelle. Ainsi, même si l'eau y descend, elles ne produisent pas ce que la terre bonne a produit.
 
-    Allah, pureté à Lui, a comparé la Révélation qu'Il a faite descendre du ciel sur les cœurs à l'eau qu'Il fait descendre sur la terre, en raison de la vie qu'elles apportent. Il a comparé les cœurs à la terre, car ils sont le siège des œuvres tout comme la terre est le siège de la végétation. Le cœur qui ne tire aucun profit de la Révélation, qui ne s'y purifie pas et qui n'y croit pas, est comme la terre qui ne bénéficie pas de la pluie et n'en produit que très peu, sans utilité. En revanche, le cœur qui a cru en la Révélation, qui s'est purifié grâce à elle et a agi selon son contenu, est comme la terre qui fait germer sa végétation grâce à la pluie.
+    Allah ﷾, a comparé la Révélation qu'Il a faite descendre du ciel sur les cœurs à l'eau qu'Il fait descendre sur la terre, en raison de la vie qu'elles apportent. Il a comparé les cœurs à la terre, car ils sont le siège des œuvres tout comme la terre est le siège de la végétation. Le cœur qui ne tire aucun profit de la Révélation, qui ne s'y purifie pas et qui n'y croit pas, est comme la terre qui ne bénéficie pas de la pluie et n'en produit que très peu, sans utilité. En revanche, le cœur qui a cru en la Révélation, qui s'est purifié grâce à elle et a agi selon son contenu, est comme la terre qui fait germer sa végétation grâce à la pluie.
 
     Ainsi, le croyant, lorsqu'il entend le Coran, le comprend et le médite, voit l'effet de cette Révélation se manifester en lui. Il est alors comparé à la terre fertile, verdoyante et féconde, sur laquelle la pluie agit avec bienfaisance, faisant germer toutes les espèces nobles. Quant à celui qui se détourne de la Révélation, il est l'exact contraire. Allah est Celui qui accorde la réussite. »
 
@@ -467,7 +467,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     L'état du cœur de l'individu dans cette vie détermine son état dans l'au-delà. Les trois demeures sont étroitement liées.
 
-    Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit dans Zad Al Ma'ad (2/31) : « L'état du serviteur dans la tombe est semblable à l'état du cœur dans la poitrine : délices et tourment, emprisonnement et libération ».
+    Ibn Al Qayyim ﵀, a dit dans Zad Al Ma'ad (2/31) : « L'état du serviteur dans la tombe est semblable à l'état du cœur dans la poitrine : délices et tourment, emprisonnement et libération ».
 
     Ainsi, le croyant dont le cœur était vivant et illuminé, et dont la poitrine était dilatée, goûtera dans sa tombe aux plaisirs, avec une tombe illuminée et élargie. Puis, lorsqu'il sera ressuscité, sa lumière resplendira aux yeux de tous, proportionnellement à l'intensité de la lumière que son cœur portait dans sa vie passée. Sa destination finale, par la miséricorde d'Allah, sera la demeure lumineuse du Paradis, où les vivants profiteront du plus grand bienfait : la vision d'Allah, Lui qui est Lumière, Beauté et Perfection.
 
