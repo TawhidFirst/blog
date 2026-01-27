@@ -472,4 +472,4 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     À l'inverse, celui qui a mécru dans cette vie, dont le cœur était mort et plongé dans les ténèbres, et dont la poitrine était étroite et fermée, subira dans la tombe châtiments, oppression et obscurité. À la résurrection, il sera désemparé dans les ténèbres, et sa destination finale sera l'Enfer, dans l'obscurité, un lieu où il ne vivra ni ne mourra, à l'image de son existence sur terre. Il sera privé de la vision d’Allah, comme il fut privé de Sa Lumière sur terre, et rien ne lui sera plus douloureux que cette privation.
     
-    "Certes, les vertueux seront dans un délice, et certes, les pervers seront dans une fournaise."[Sourate 82, v.13-14]
+    > « Certes, les vertueux seront dans un délice, et certes, les pervers seront dans une fournaise. » [Sourate 82, v.13-14]
