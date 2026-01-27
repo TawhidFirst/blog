@@ -150,7 +150,7 @@ Al-Tirmidhi a qualifié ce hadith d'authentique.
 
 'Abd Allah ibn Mas'ud, qu'Allah l'agrée, a dit : « À chaque péché, un point noir est inscrit sur son cœur, jusqu'à ce qu'il soit entièrement noirci. »
 
-Allah ﷾, a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leurs cœurs.
+Allah ﷾ a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leurs cœurs.
 
 9. Parmi elles : la surdité et l'alourdissement de l'ouïe, comme dans Sa parole, Exalté soit-Il :
 
@@ -196,7 +196,7 @@ Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas,
 
 > Et quand une sourate est descendue, ils se regardent les uns les autres (en disant) : « Quelqu'un vous voit-il ? » Puis ils se détournent. Allah a détourné leurs cœurs parce qu'ils sont un peuple qui ne comprend rien. [Sourate 9, v.127]
 
-Allah ﷾, nous informe ici de leur acte -- le détournement -- et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
+Allah ﷾ nous informe ici de leur acte -- le détournement -- et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
 
 15. On trouve aussi leur déviation de la vérité, comme l'a dit Allah ﷾ :
 
@@ -240,7 +240,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Le Messager d'Allah ﷺ disait dans son invocation : « Ô Toi qui affermis les cœurs, affermis nos cœurs sur Ta religion. » Car les cœurs sont entre deux doigts parmi les Doigts du Tout-Miséricordieux, Il les retourne comme Il le veut.
 
-    Et il demandait à Allah ﷿, l'affermissement des cœurs sur Sa religion.
+    Et il demandait à Allah ﷿ l'affermissement des cœurs sur Sa religion.
 
     S'Il le veut, Il maintient le cœur droit, le plaçant avec rectitude sur la voie, empli de la crainte d'Allah ﷿.
 
@@ -258,9 +258,9 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Le Cheikh, qu'Allah le préserve, ajoute également, comme clarification à une ambiguité que certains utilisent pour nier la réalité de cet attribut d'essence :
 
-    « Et le fait de dire que les cœurs sont entre ces deux Doigts parmi les Doigts du Tout-Miséricordieux ne signifie pas qu'il y ait contact entre les cœurs et les Doigts. En effet, Allah ﷿, tient toute chose dans Sa Main, et toute chose relève de Sa volonté et de Son vouloir.
+    « Et le fait de dire que les cœurs sont entre ces deux Doigts parmi les Doigts du Tout-Miséricordieux ne signifie pas qu'il y ait contact entre les cœurs et les Doigts. En effet, Allah ﷿ tient toute chose dans Sa Main, et toute chose relève de Sa volonté et de Son vouloir.
 
-    Or il est connu qu'Allah ﷿, a dit :
+    Or il est connu qu'Allah ﷿ a dit :
 
     > « ...et les nuages assujettis entre le ciel et la terre » [Sourate 2, v.164]
 
@@ -362,7 +362,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
 [^18]: [NDT] Ce sujet est d'une grande importance, car il touche à la foi en Allah et à Son décret. De nombreuses personnes se sont égarées en niant la réalité de ces actions d'Allah, tandis que d'autres ont été saisies de doutes ou ont nourri de mauvaises opinions. Allah a expliqué à plusieurs reprises dans le Coran que les obstacles placés sur les cœurs, les oreilles et les yeux ne sont pas arbitraires, mais constituent une conséquence et un châtiment proportionné à leur choix volontaire de l'incrédulité et du rejet des messagers. Ainsi, le scellement, la fermeture, etc., du cœur sont la sanction de leur refus et de leur mépris antérieur de la vérité.
 
-    Ibn Al Qayyim a dit dans Madarij Al Salikin (1/66) : \"Allah ﷾ a dit : « Il n'appartient pas à Allah d'égarer un peuple après qu'Il l'a guidé, jusqu'à ce qu'Il lui ait clairement exposé ce qu'il doit craindre » [Sourate 9, v.115]. Cet égarement est donc un châtiment de Sa part à leur égard : alors qu'Il leur avait apporté la clarté, ils n'acceptèrent pas ce qu'Il leur avait exposé et n'en firent rien, Il les a alors punis en les détournant de la guidée. Allah ﷾, n'a jamais égaré quiconque sans avoir préalablement reçut cette démonstration.
+    Ibn Al Qayyim a dit dans Madarij Al Salikin (1/66) : \"Allah ﷾ a dit : « Il n'appartient pas à Allah d'égarer un peuple après qu'Il l'a guidé, jusqu'à ce qu'Il lui ait clairement exposé ce qu'il doit craindre » [Sourate 9, v.115]. Cet égarement est donc un châtiment de Sa part à leur égard : alors qu'Il leur avait apporté la clarté, ils n'acceptèrent pas ce qu'Il leur avait exposé et n'en firent rien, Il les a alors punis en les détournant de la guidée. Allah ﷾ n'a jamais égaré quiconque sans avoir préalablement reçu cette démonstration.
 
     Si tu comprends cela, tu sauras le secret du décret, et de nombreux doutes et soupçons se dissiperont dans ce chapitre. Tu comprendras également la sagesse d'Allah dans l'égarement de ceux de Ses serviteurs qu'Il égare. Le Coran affirme cela à plusieurs reprises, telle Sa parole : « Et lorsqu'ils dévièrent, Allah fit dévier leurs cœurs » [Sourate 61, v.5], et Sa parole : « Et de leur déclaration : \"Nos cœurs sont enveloppés\". Allah a plutôt scellé leurs cœurs en raison de leur mécréance » [Sourate 4, v.155]. Le premier cas relève de la mécréance par entêtement, le second de la mécréance par scellement.
 
