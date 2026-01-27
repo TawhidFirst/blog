@@ -62,25 +62,25 @@ Loin de nier la réalité de ces termes, le sens de ces expressions désigne plu
 
 > Ou y a-t-il des cadenas sur les cœurs ? [Sourate 47, v.24]
 
-Leurs cœurs sont cadenassés et voilés, de sorte que les sens du Coran ne les atteignent pas [^12]. Ils sont scellés sur le mal qu'ils renferment, si bien qu'aucun bien ne peut y pénétrer. Le cœur est alors semblable à une porte close par un verrou, empêchant quiconque d'accéder à ce qu'il y a derrière. Il en est de même pour le cœur : la foi ne saurait y entrer tant que ce verrou n'est pas ouvert.
+Leur cœur est cadenassé et voilé, de sorte que les sens du Coran ne les atteignent pas [^12]. Ils sont scellés sur le mal qu'ils renferment, si bien qu'aucun bien ne peut y pénétrer. Le cœur est alors semblable à une porte close par un verrou, empêchant quiconque d'accéder à ce qu'il y a derrière. Il en est de même pour le cœur : la foi ne saurait y entrer tant que ce verrou n'est pas ouvert.
 
 3. Parmi ses attributs également : la fermeture et le scellement.
 
 Allah a dit :
 
-> Allah a fermé leurs cœurs. [Sourate 2, v.7]
+> Allah a fermé leur cœur. [Sourate 2, v.7]
 
-> Allah a scellé leurs cœurs. [Sourate 16, v.108]
+> Allah a scellé leur cœur. [Sourate 16, v.108]
 
 La fermeture et le scellement consistent à recouvrir une chose de manière à empêcher toute intrusion. Si ces deux termes sont sémantiquement proches, le scellement se distingue en ce qu'il désigne une fermeture devenue nature et disposition (un état durable dont l'homme ne peut plus se défaire). [^13]
 
 4. Parmi ses caractéristiques figure également ce qui a été évoqué dans la parole d'Allah ﷾ :
 
-> Mais Nous avons jeté des voiles sur leurs cœurs, de sorte qu'ils ne comprennent pas, et une surdité dans leurs oreilles. Quand bien même ils verraient tous les signes, ils n'y croiraient pas. [Sourate 6, v.25]
+> Mais Nous avons jeté des voiles sur leur cœur, de sorte qu'ils ne comprennent pas, et une surdité dans leurs oreilles. Quand bien même ils verraient tous les signes, ils n'y croiraient pas. [Sourate 6, v.25]
 
-> Et Nous avons mis des voiles sur leurs cœurs pour qu'ils ne le comprennent pas, et dans leurs oreilles une surdité. Et quand vous évoquez dans le Coran votre Seigneur, l'Unique, ils tournent le dos et fuient, par aversion. [Sourate 17, v.46]
+> Et Nous avons mis des voiles sur leur cœur pour qu'ils ne le comprennent pas, et dans leurs oreilles une surdité. Et quand vous évoquez dans le Coran votre Seigneur, l'Unique, ils tournent le dos et fuient, par aversion. [Sourate 17, v.46]
 
-> Nous entourons leurs cœurs de voiles qui les empêchent de comprendre [le Coran], et les rendons sourds [à la vérité], si bien que tu auras beau les appeler à la droiture, ils ne seront jamais guidés. [Sourate 18, v.57]
+> Nous entourons leur cœur de voiles qui les empêchent de comprendre [le Coran], et les rendons sourds [à la vérité], si bien que tu auras beau les appeler à la droiture, ils ne seront jamais guidés. [Sourate 18, v.57]
 
 C'est le pluriel de « كِنَان » (kinān), semblable à « عِنَان » (ʿinān) et « أَعِنَة » (aʿinna), dont l'étymologie renvoie aux idées de voile et de recouvrement. Ils en attestèrent d'ailleurs contre eux-mêmes en disant :
 
@@ -102,7 +102,7 @@ Ibn 'Abbas, qu'Allah l'agrée, a dit : « Nos cœurs sont couverts de voiles, te
 Ce verset revêt une double signification :
 
 - Leurs yeux étaient voilés aux implications du Rappel, notamment les signes d'Allah, les preuves de Son Tawhid et les merveilles attestant de Sa Toute-Puissance.
-- Leurs cœurs étaient voilés à la compréhension du Coran et à sa méditation, les empêchant de le prendre pour guide.
+- Leur cœur était voilé à la compréhension du Coran et à sa méditation, les empêchant de le prendre pour guide.
 
 C'est précisément ce voilement du cœur qui précède celui de la vue.
 
@@ -110,11 +110,11 @@ C'est précisément ce voilement du cœur qui précède celui de la vue.
 
 > Et ils disent : « Nos cœurs sont enveloppés ». Allah les a plutôt maudits à cause de leur mécréance, tant ils croient peu. [Sourate 2, v.88]
 
-> [Nous les avons maudits] en raison de leur rupture du pacte, de leur rejet des signes d'Allah, de leur meurtre injustifié des Prophètes, et de leur déclaration : « Nos cœurs sont enveloppés ». Allah a plutôt scellé leurs cœurs en raison de leur mécréance, de sorte qu'ils ne croient qu'un peu. [Sourate 4, v.155]
+> [Nous les avons maudits] en raison de leur rupture du pacte, de leur rejet des signes d'Allah, de leur meurtre injustifié des Prophètes, et de leur déclaration : « Nos cœurs sont enveloppés ». Allah a plutôt scellé leur cœur en raison de leur mécréance, de sorte qu'ils ne croient qu'un peu. [Sourate 4, v.155]
 
-Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas, qu'Allah l'agrée, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leurs cœurs furent créés dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant : « Allah a plutôt scellé leurs cœurs en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
+Ces paroles signifient : « Nous ne saisissons ni ne comprenons tes propos. » Ibn 'Abbas, qu'Allah l'agrée, ainsi que Qatadah et Mujahid, qu'Allah leur fasse miséricorde, ont précisé : « Nos cœurs sont recouverts de voiles et enfermés dans des récipients ; ils ne saisissent pas tes paroles ni ne les comprennent. » [^17] Ils ont ainsi prétendu que leur cœur fut créé dans des récipients hermétiques, s'estimant donc excusés de ne pas croire. Allah les a démentis en déclarant : « Allah a plutôt scellé leur cœur en raison de leur mécréance. » Et dans l'autre verset : « Allah les a plutôt maudits à cause de leur mécréance. »
 
-Allah a ainsi montré que le scellement des cœurs, ainsi que la privation de Sa grâce et de Sa guidée, résultent exclusivement de la mécréance qu'ils ont eux-mêmes choisie, la préférant à la foi. C'est en juste rétribution de leurs actes qu'Allah a scellé leurs cœurs et les a maudits. En d'autres termes : Nous n'avons pas créé vos cœurs voilés au point de vous rendre incapables de saisir ou de comprendre, tout en vous ordonnant une foi qui vous serait inaccessible. Au contraire, ce sont leurs propres agissements qui ont provoqué ce marquage et la fermeture de leurs cœurs. [^18]
+Allah a ainsi montré que le scellement des cœurs, ainsi que la privation de Sa grâce et de Sa guidée, résultent exclusivement de la mécréance qu'ils ont eux-mêmes choisie, la préférant à la foi. C'est en juste rétribution de leurs actes qu'Allah a scellé leur cœur et les a maudits. En d'autres termes : Nous n'avons pas créé vos cœurs voilés au point de vous rendre incapables de saisir ou de comprendre, tout en vous ordonnant une foi qui vous serait inaccessible. Au contraire, ce sont leurs propres agissements qui ont provoqué ce marquage et la fermeture de leur cœur. [^18]
 
 7. Parmi ces obstacles figure le voile. Celui-ci est évoqué dans la parole d'Allah ﷾ [rapportant leurs propres propos] :
 
@@ -126,7 +126,7 @@ Et dans Sa parole :
 
 Allah interpose ainsi un écran entre eux et la récitation du Coran, ce qui les empêche de le comprendre, de le méditer et d'y adhérer. Ce sens est explicité dans Sa parole :
 
-> Certains d'entre eux viennent t'écouter, alors que Nous avons placé des voiles sur leurs cœurs, les empêchant de comprendre (le Coran), et que leurs oreilles sont lourdes. [Sourate 6, v.25]
+> Certains d'entre eux viennent t'écouter, alors que Nous avons placé des voiles sur leur cœur, les empêchant de comprendre (le Coran), et que leurs oreilles sont lourdes. [Sourate 6, v.25]
 
 Ces trois entraves sont réunies dans Sa parole :
 
@@ -136,21 +136,21 @@ Allah a indiqué que cette conséquence émane de Lui [^19] : le rideau empêche
 
 8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole d'Allah ﷾ :
 
-> Non ! Mais sur leurs cœurs se trouve le Rân (un voile de péchés et de mauvaises actions) qu'ils avaient accumulé. [Sourate 83, v.14]
+> Non ! Mais sur leur cœur se trouve le Rân (un voile de péchés et de mauvaises actions) qu'ils avaient accumulé. [Sourate 83, v.14]
 
-Ce voile a recouvert leurs cœurs en raison de la profusion de leurs péchés et de leurs désobéissances, jusqu'à les cerner entièrement. Il compte parmi les voiles les plus épais et les plus opaques qui puissent affecter le cœur.
+Ce voile a recouvert leur cœur en raison de la profusion de leurs péchés et de leurs désobéissances, jusqu'à les cerner entièrement. Il compte parmi les voiles les plus épais et les plus opaques qui puissent affecter le cœur.
 
-Mujâhid, qu'Allah lui fasse miséricorde, a dit : « C'est le péché qui s'ajoute au péché jusqu'à cerner le cœur et l'envelopper ; c'est ainsi que le cœur meurt. » Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Leurs mauvaises actions ont submergé leurs cœurs. »
+Mujâhid, qu'Allah lui fasse miséricorde, a dit : « C'est le péché qui s'ajoute au péché jusqu'à cerner le cœur et l'envelopper ; c'est ainsi que le cœur meurt. » Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Leurs mauvaises actions ont submergé leur cœur. »
 
-Dans les Sunan d'Al-Nasa-i et d'Al-Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
+Dans les Sunan d'Al Nasa'i et d'Al Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
 
-> « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit : \"Non ! Mais sur leurs cœurs se trouve le Rân qu'ils avaient accumulé\". »
+> « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit : \"Non ! Mais sur leur cœur se trouve le Rân qu'ils avaient accumulé\". »
 
-Al-Tirmidhi a qualifié ce hadith d'authentique.
+Al Tirmidhi a qualifié ce hadith d'authentique.
 
 'Abd Allah ibn Mas'ud, qu'Allah l'agrée, a dit : « À chaque péché, un point noir est inscrit sur son cœur, jusqu'à ce qu'il soit entièrement noirci. »
 
-Allah ﷾ a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leurs cœurs.
+Allah ﷾ a ainsi révélé que les péchés qu'ils ont commis ont été la cause de ce Rân sur leur cœur.
 
 9. Parmi elles : la surdité et l'alourdissement de l'ouïe, comme dans Sa parole, Exalté soit-Il :
 
@@ -162,7 +162,7 @@ Allah ﷾ a ainsi révélé que les péchés qu'ils ont commis ont été la caus
 
 > Quant à ceux qui ne croient pas, il y a une lourdeur (surdité) dans leurs oreilles, et ils restent aveugles face au Coran ; ils sont appelés depuis un lieu lointain. [Sourate 41, v.44]
 
-Ibn 'Abbas, qu'Allah les agrée tous deux, a dit : « Leurs oreilles sont sourdes à l'écoute du Coran, et ils restent aveugles face à lui. Allah a aveuglé leurs cœurs, si bien qu'ils ne comprennent pas. Ils sont appelés depuis un lieu lointain, comme le bétail qui ne comprend que l'appel et le cri. » Mujahid a ajouté : « Loin de leurs cœurs », signifiant qu'ils n'écoutent ni ne comprennent, à l'instar de celui qu'on interpelle de très loin : il ne peut ni entendre distinctement, ni saisir le sens du message. [^21]
+Ibn 'Abbas, qu'Allah les agrée tous deux, a dit : « Leurs oreilles sont sourdes à l'écoute du Coran, et ils restent aveugles face à lui. Allah a aveuglé leur cœur, si bien qu'ils ne comprennent pas. Ils sont appelés depuis un lieu lointain, comme le bétail qui ne comprend que l'appel et le cri. » Mujahid a ajouté : « Loin de leur cœur », signifiant qu'ils n'écoutent ni ne comprennent, à l'instar de celui qu'on interpelle de très loin : il ne peut ni entendre distinctement, ni saisir le sens du message. [^21]
 
 10. Parmi ses conséquences figure également la mutité. Allah ﷾ a dit :
 
@@ -170,7 +170,7 @@ Ibn 'Abbas, qu'Allah les agrée tous deux, a dit : « Leurs oreilles sont sourde
 
 **Al-Bukm** est le pluriel d'**Abkam**, terme désignant celui qui est incapable de parler. La mutité revêt deux formes : celle du cœur et celle de la langue ; de même que la parole procède du cœur ou de la langue. La plus grave des deux est la mutité du cœur, tout comme sa cécité et sa surdité s'avèrent bien plus profondes que celles des sens physiques. C'est pourquoi Allah ﷾, les a décrits comme étant incapables de saisir la vérité par le cœur ou de la proclamer par la langue.
 
-Le savoir parvient au serviteur par trois portes : son ouïe, sa vue et son cœur. Or, ces trois portes leur ont été fermées : l'ouïe s'est corrompue par la surdité, la vue par la cécité, et le cœur par la mutité. Cela rejoint la parole d'Allah ﷾ : « Ils ont des cœurs, mais ne comprennent pas. Ils ont des yeux, mais ne voient pas. Ils ont des oreilles, mais n'entendent pas. » [Sourate 7, v.179]. Il ﷾ a réuni ces trois facultés dans Sa parole : « Et Nous les avons dotés de l'ouïe, de la vue et de cœurs, mais ni leur ouïe, ni leurs yeux, ni leurs cœurs ne leur ont profité en quoi que ce soit, parce qu'ils niaient les signes d'Allah. » [Sourate 46, v.26]. Ainsi, lorsqu'Allah veut guider un serviteur, Il lui ouvre le cœur, l'ouïe et la vue. Mais s'Il veut son égarement, Il le rend sourd, aveugle et muet.
+Le savoir parvient au serviteur par trois portes : son ouïe, sa vue et son cœur. Or, ces trois portes leur ont été fermées : l'ouïe s'est corrompue par la surdité, la vue par la cécité, et le cœur par la mutité. Cela rejoint la parole d'Allah ﷾ : « Ils ont des cœurs, mais ne comprennent pas. Ils ont des yeux, mais ne voient pas. Ils ont des oreilles, mais n'entendent pas. » [Sourate 7, v.179]. Il ﷾ a réuni ces trois facultés dans Sa parole : « Et Nous les avons dotés de l'ouïe, de la vue et de cœurs, mais ni leur ouïe, ni leurs yeux, ni leur cœur ne leur ont profité en quoi que ce soit, parce qu'ils niaient les signes d'Allah. » [Sourate 46, v.26]. Ainsi, lorsqu'Allah veut guider un serviteur, Il lui ouvre le cœur, l'ouïe et la vue. Mais s'Il veut son égarement, Il le rend sourd, aveugle et muet.
 
 11. Parmi ces caractéristiques figure l'enveloppement [**Al-Ghishawa**].
 
@@ -188,19 +188,19 @@ Autrement dit : il fut détourné de la vérité et de la guidée à cause du fa
 
 13. On compte aussi parmi elles l'endurcissement du cœur, tel qu'évoqué dans la parole d'Allah ﷾, Exalté soit-Il :
 
-> Et Mussa dit : « Ô notre Seigneur, Tu as accordé à Pharaon et à ses notables des parures et des richesses dans la vie présente pour que, ô notre Seigneur, ils égarent les gens de Ton chemin. Ô notre Seigneur, anéantis leurs richesses et endurcis leurs cœurs, afin qu'ils ne croient pas jusqu'à ce qu'ils voient le châtiment douloureux ». Il dit : « Votre prière est exaucée. Restez tous deux sur le droit chemin ». [Sourate 10, v.88-89]
+> Et Mussa dit : « Ô notre Seigneur, Tu as accordé à Pharaon et à ses notables des parures et des richesses dans la vie présente pour que, ô notre Seigneur, ils égarent les gens de Ton chemin. Ô notre Seigneur, anéantis leurs richesses et endurcis leur cœur, afin qu'ils ne croient pas jusqu'à ce qu'ils voient le châtiment douloureux ». Il dit : « Votre prière est exaucée. Restez tous deux sur le droit chemin ». [Sourate 10, v.88-89]
 
-Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas, qu'Allah l'agrée, a dit : « Il veut dire : prive-les », le sens étant : endurcis leurs cœurs et scelle-les afin qu'ils ne s'adoucissent point et ne s'ouvrent point à la foi. [^22]
+Cet endurcissement est une entrave et un empêchement. C'est pourquoi Ibn Abbas, qu'Allah l'agrée, a dit : « Il veut dire : prive-les », le sens étant : endurcis leur cœur et scelle-les afin qu'ils ne s'adoucissent point et ne s'ouvrent point à la foi. [^22]
 
 14. Figure également le détournement, comme l'a dit Allah ﷾ :
 
-> Et quand une sourate est descendue, ils se regardent les uns les autres (en disant) : « Quelqu'un vous voit-il ? » Puis ils se détournent. Allah a détourné leurs cœurs parce qu'ils sont un peuple qui ne comprend rien. [Sourate 9, v.127]
+> Et quand une sourate est descendue, ils se regardent les uns les autres (en disant) : « Quelqu'un vous voit-il ? » Puis ils se détournent. Allah a détourné leur cœur parce qu'ils sont un peuple qui ne comprend rien. [Sourate 9, v.127]
 
-Allah ﷾ nous informe ici de leur acte (le détournement) et de Sa sentence à leur égard : le détournement de leurs cœurs du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leurs cœurs ne saisissent rien et leurs intentions sont corrompues.
+Allah ﷾ nous informe ici de leur acte (le détournement) et de Sa sentence à leur égard : le détournement de leur cœur du Coran et de sa méditation. En effet, ils n'en sont pas dignes, le réceptacle n'étant ni apte ni réceptif. L'intégrité du cœur repose sur deux piliers : la qualité de la compréhension et la noblesse de l'intention. Or, leur cœur ne saisit rien et leurs intentions sont corrompues.
 
 15. On trouve aussi leur déviation de la vérité, comme l'a dit Allah ﷾ :
 
-> Puis, quand ils dévièrent, Allah fit dévier leurs cœurs. [Sourate 61, v.5]
+> Puis, quand ils dévièrent, Allah fit dévier leur cœur. [Sourate 61, v.5]
 
 À l'inverse, Il mentionne que Ses serviteurs croyants L'implorent en ces termes :
 
@@ -228,6 +228,8 @@ Le mécréant est ainsi décrit comme un être mort, semblable aux habitants des
 
 Nous demandons à Allah le pardon, la protection et une préservation durable ici-bas et dans l'au-delà.
 
+Traduction: Azwaw Abou 'Abd Al Razzaq
+
 [^1]: Rapporté par Ibn Majah (199) et authentifié par Al Albani.
 
     Cheikh 'Abd Al Muhsin Al 'Abbad, qu'Allah le préserve, a dit dans son explication des Sunan d'Ibn Majah :
@@ -246,7 +248,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Et s'Il le veut, Il le fait dévier, l'écartant de la vérité. Tel est le sens de l'égarement des cœurs : leur inclinaison et leur détournement de la rectitude, ainsi que l'a dit Allah ﷿ :
 
-    > « Puis, quand ils dévièrent, Allah fit dévier leurs cœurs. » [Sourate 61, v.5]
+    > « Puis, quand ils dévièrent, Allah fit dévier leur cœur. » [Sourate 61, v.5]
 
     Lorsqu'ils dévièrent, ils furent châtiés par une déviation accrue en plus de la première.
 
@@ -348,7 +350,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
 [^11]: Rapporté par Al Bukhari (6114) et Muslim (2609).
 
-[^12]: [NDT] Il fait référence au début du verset : « Ne méditent-ils donc pas sur le Coran, ou y a-t-il sur des cœurs des cadenas ? ». C'est une réprobation et une mise en évidence de l'état de leurs cœurs, qui ne sont pas ouverts à la méditation des sens auxquels le Coran appelle. L'emploi de l'indéfini (\"des cœurs\"), vise soit à accentuer la gravité de leur état, soit à désigner les cœurs de certains d'entre eux. Il n'a pas été dit « leurs cœurs », car leurs cœurs eux-mêmes ne leur ont pas été bénéfiques. En revanche, les « cadenas » leur ont été annexés, car ce qualificatif correspond à leur état constant d'incrédulité et d'obstination.
+[^12]: [NDT] Il fait référence au début du verset : « Ne méditent-ils donc pas sur le Coran, ou y a-t-il sur des cœurs des cadenas ? ». C'est une réprobation et une mise en évidence de l'état de leur cœur, qui ne sont pas ouverts à la méditation des sens auxquels le Coran appelle. L'emploi de l'indéfini (\"des cœurs\"), vise soit à accentuer la gravité de leur état, soit à désigner les cœurs de certains d'entre eux. Il n'a pas été dit « leur cœur », car leur cœur lui-même ne leur a pas été bénéfique. En revanche, les « cadenas » leur ont été annexés, car ce qualificatif correspond à leur état constant d'incrédulité et d'obstination.
 
 [^13]: [NDT] C'est la différence évoquée par Ibn Al Qayyim dans Shifa Al 'Alil (1/304). Al Khatm désigne le recouvrement ou fermeture du cœur, tandis que Al Tab' est un scellement enraciné dont l'effet est durable. Ainsi, Al Tab' est plus grave que Al Khatm par son effet persistant.
 
@@ -364,9 +366,9 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     Ibn Al Qayyim a dit dans Madarij Al Salikin (1/66) : \"Allah ﷾ a dit : « Il n'appartient pas à Allah d'égarer un peuple après qu'Il l'a guidé, jusqu'à ce qu'Il lui ait clairement exposé ce qu'il doit craindre » [Sourate 9, v.115]. Cet égarement est donc un châtiment de Sa part à leur égard : alors qu'Il leur avait apporté la clarté, ils n'acceptèrent pas ce qu'Il leur avait exposé et n'en firent rien, Il les a alors punis en les détournant de la guidée. Allah ﷾ n'a jamais égaré quiconque sans avoir préalablement reçu cette démonstration.
 
-    Si tu comprends cela, tu sauras le secret du décret, et de nombreux doutes et soupçons se dissiperont dans ce chapitre. Tu comprendras également la sagesse d'Allah dans l'égarement de ceux de Ses serviteurs qu'Il égare. Le Coran affirme cela à plusieurs reprises, telle Sa parole : « Et lorsqu'ils dévièrent, Allah fit dévier leurs cœurs » [Sourate 61, v.5], et Sa parole : « Et de leur déclaration : \"Nos cœurs sont enveloppés\". Allah a plutôt scellé leurs cœurs en raison de leur mécréance » [Sourate 4, v.155]. Le premier cas relève de la mécréance par entêtement, le second de la mécréance par scellement.
+    Si tu comprends cela, tu sauras le secret du décret, et de nombreux doutes et soupçons se dissiperont dans ce chapitre. Tu comprendras également la sagesse d'Allah dans l'égarement de ceux de Ses serviteurs qu'Il égare. Le Coran affirme cela à plusieurs reprises, telle Sa parole : « Et lorsqu'ils dévièrent, Allah fit dévier leur cœur » [Sourate 61, v.5], et Sa parole : « Et de leur déclaration : \"Nos cœurs sont enveloppés\". Allah a plutôt scellé leur cœur en raison de leur mécréance » [Sourate 4, v.155]. Le premier cas relève de la mécréance par entêtement, le second de la mécréance par scellement.
 
-    Et Sa parole : « Et Nous détournerons leurs cœurs et leurs yeux (de la guidée), car ils ont refusé d'y croire pour la première fois, et Nous les laisserons errer aveuglément dans leur transgression. » [Sourate 6, v.110]. Il les a donc punis pour avoir abandonné la foi en Lui après qu'elle leur fut apparue clairement et qu'ils en eurent la certitude, en détournant leurs cœurs et leurs regards, si bien qu'ils ne trouvèrent plus la guidée. Médite ce passage avec soin, car c'est un sujet d'une importance majeure.\"
+    Et Sa parole : « Et Nous détournerons leur cœur et leurs yeux (de la guidée), car ils ont refusé d'y croire pour la première fois, et Nous les laisserons errer aveuglément dans leur transgression. » [Sourate 6, v.110]. Il les a donc punis pour avoir abandonné la foi en Lui après qu'elle leur fut apparue clairement et qu'ils en eurent la certitude, en détournant leur cœur et leurs regards, si bien qu'ils ne trouvèrent plus la guidée. Médite ce passage avec soin, car c'est un sujet d'une importance majeure.\"
 
 [^19]: [C] Toute chose bien ou mauvaise présente dans le cœur ne peut provenir que d'Allah. C'est pourquoi la personne doit s'orienter, implorer Allah pour qu'Il place dans son cœur le bien et qu'Il repousse tout mal. Mutarif ibn 'Abdillah ibn Shighir, qu'Allah lui fasse miséricorde, qui compte parmi les Tabi'in, a dit : « Si l'on sortait mon cœur et le plaçait dans ma main gauche, et que le bien dans son intégralité était placé dans ma main droite, je ne pourrais introduire quoi que ce soit dans mon cœur, si ce n'est qu'Allah l'y place. » [cf. Hilyat al-Awliya (2/201), Siyar A'lam Al Nubala (4/190)]
 
@@ -428,7 +430,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
     C'est pourquoi Allah a nié aux mécréants l'ouïe, la vue et l'intelligence :
     - soit parce qu'ils n'en tirent aucun profit, ces facultés étant alors ravalées au rang du néant ;
-    - soit parce que la négation porte sur l'ouïe, la vue et la perception de leurs cœurs.
+    - soit parce que la négation porte sur l'ouïe, la vue et la perception de leur cœur.
 
     Et cela leur apparaîtra clairement lorsque les réalités des choses se dévoileront, comme l'avoueront les gens de la Fournaise :
 
@@ -438,7 +440,7 @@ Nous demandons à Allah le pardon, la protection et une préservation durable ic
 
 [^23]: [C] Les cœurs sont morts sans la révélation qui leur donne vie. « Et c'est ainsi que Nous t'avons révélé une âme [le Coran] provenant de Notre ordre. Tu n'avais aucune connaissance du Livre ni de la foi mais Nous en avons fait une lumière par laquelle Nous guidons qui Nous voulons parmi Nos serviteurs. Et en vérité tu guides vers un chemin droit » [Sourate 42, v.52]. Allah a appelé Sa révélation « âme » (Ruh) ainsi que Djibril qui est descendu avec cette révélation car les cœurs ne prennent vie qu'avec elle : « Ô vous qui avez cru ! Répondez à Allah et au Messager lorsqu'il vous appelle à ce qui vous donne [véritablement] vie » [Sourate 8, v.24]. Sans cette révélation, la vie est comparable à une vie animale, le cœur ne s'éveille que lorsqu'il s'imprègne de la révélation provenant d'Allah, Sa parole et celle de Son Messager.
 
-    Dans le Coran, une analogie est faite entre la vie des cœurs par la révélation et celle de la terre par la pluie. « Le moment n'est-il pas venu pour ceux qui ont cru, que leurs cœurs s'humilient à l'évocation d'Allah et devant ce qui est descendu de la vérité [le Coran] et de ne point être semblable à ceux qui ont reçu le Livre avant eux. Ceux-ci trouvèrent le temps trop long et leurs cœurs s'endurcirent et beaucoup d'entre eux sont pervers. Sachez qu'Allah redonne la vie à la terre une fois morte » [Sourate 57, v.16-17].
+    Dans le Coran, une analogie est faite entre la vie des cœurs par la révélation et celle de la terre par la pluie. « Le moment n'est-il pas venu pour ceux qui ont cru, que leur cœur s'humilie à l'évocation d'Allah et devant ce qui est descendu de la vérité [le Coran] et de ne point être semblable à ceux qui ont reçu le Livre avant eux. Ceux-ci trouvèrent le temps trop long et leur cœur s'endurcit et beaucoup d'entre eux sont pervers. Sachez qu'Allah redonne la vie à la terre une fois morte » [Sourate 57, v.16-17].
 
     Ainsi, la révélation descendue d'Allah, Seigneur des univers, constitue la vie des cœurs, leur source de piété et de purification. Ces cœurs ne peuvent vivre sans elle, tout comme la terre ne peut être fertile sans pluie. « Et parmi Ses signes, vous voyez la terre déserte et desséchée mais lorsque Nous lui faisons descendre de l'eau, elle reverdit et produit des végétations » [Sourate 41, v.39].
 
