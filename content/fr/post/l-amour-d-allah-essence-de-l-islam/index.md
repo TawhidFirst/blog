@@ -10,8 +10,6 @@ categories:
 draft: false
 ---
 
-## L'amour d'Allah, essence de l'Islam
-
 Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[^1], à qui appartiennent les Noms les plus beaux et les Attributs les plus élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
 
 Il est la véritable vie dont celui qui en est privé figure parmi les morts, la lumière resplendissante dont celui qui est dépourvu sombre dans les abysses des ténèbres, le remède absolu dont celui qui est dénué voit son cœur assailli par toutes sortes de maux, et le délice parfait dont celui qui en est privé se voit accablé par une succession de tourments et de douleurs.
