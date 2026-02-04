@@ -1,12 +1,14 @@
 ---
 title: L'amour d'Allah, essence de l'Islam
 date: 2026-02-04
+tags:
+- Florilège des enseignements de l'islam
 categories:
-- Florilège des enseignements de l'Islam
+- Articles
 draft: false
 ---
 
-# L'amour d'Allah, essence de l'Islam
+## L'amour d'Allah, essence de l'Islam
 
 Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[^1], à qui appartiennent les Noms les plus beaux et les Attributs les plus élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
 
@@ -36,7 +38,7 @@ Toutefois, au cœur des épreuves successives, de la multitude des distractions 
 
 Arrêtons-nous sur un ensemble de réalités grandioses qui attirent vers les cœurs l'amour d' [Allah] Dhil Jalal wal Ikram :  
 
-# 1. La lecture méditative du Coran
+## La lecture méditative du Coran
 
 La plus éminente d'entre elles est le soin apporté à la lecture du Noble Coran, lequel :
 
@@ -60,7 +62,7 @@ Que de guidées pour les cœurs, de réforme pour les âmes et de renforcement d
 
 Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « En somme, rien n'est plus bénéfique pour le cœur que la lecture du Coran avec méditation et réflexion, car il réunit toutes les étapes des cheminants, les états des dévots et les demeures des connaisseurs. C'est lui qui engendre l'amour, le désir, la crainte, l'espoir, le repentir, la confiance, la satisfaction, la remise de soi, la gratitude, la patience et l'ensemble des états par lesquels le cœur vit et atteint sa perfection. De même, il préserve de tous les caractères et actes blâmables qui causent la corruption et la perte du cœur. »[^4]
 
-# 2. La connaissance des Noms et Attributs d'Allah
+## La connaissance des Noms et Attributs d'Allah
 
 Parmi les choses qui suscitent l'amour figure la connaissance des Noms les plus beaux d'Allah et de Ses Attributs sublimes. En effet, plus le serviteur accroît sa connaissance d'Allah, plus son amour pour Lui augmente, plus il aspire à Son adoration et plus il s'éloigne de Sa désobéissance.
 
@@ -70,7 +72,7 @@ Il convient ici de savoir que la connaissance d'Allah se divise en deux catégor
 
 Cette connaissance est la source de tout bien, le foyer de toute vertu et la plus profitable des voies menant à l'amour [d'Allah].
 
-# 3. Le rappel des bienfaits d'Allah
+## Le rappel des bienfaits d'Allah
 
 Parmi les choses qui attirent l'amour figure le souvenir des bienfaits d'Allah, de Ses grâces, de Sa bienfaisance et de Sa bonté :
 
@@ -87,13 +89,13 @@ Notre Prophète ﷺ, comme cela est établi dans le recueil authentique, lorsqu'
 > « Toutes les louanges reviennent de droit à Allah qui nous a nourris, nous a abreuvés, nous a suffi et nous a donné refuge, car combien sont ceux qui n'ont personne pour leur suffire ni pour leur donner refuge. »[^6]
 
 
-# 4. La méditation sur les créatures d'Allah
+## La méditation sur les créatures d'Allah
 
 Parmi les causes suscitant l'amour, figure la méditation sur les créatures d'Allah, si diverses et merveilleuses, telles que les cieux et la terre, le soleil et la lune, les astres et les étoiles, la nuit et le jour, les montagnes et les arbres, les mers et les rivières. L'observation de la beauté, de la régularité et de la perfection qui les caractérisent déroute les esprits et témoigne de l'immensité de la science d'Allah ainsi que de l'universalité de Sa sagesse.
 
 Ces créatures recèlent une multitude de bienfaits et de grâces innombrables qui attestent de l'étendue de la miséricorde d'Allah, de Sa générosité et de Sa bonté. Tout cela invite à magnifier leur Concepteur et leur Créateur, à L'aimer, à Le remercier, à L'évoquer avec ferveur et à Lui vouer un culte exclusif. Tel est l'âme de la foi et son secret.
 
-# 5. Préférer ce qu'Allah aime
+## Préférer ce qu'Allah aime
 
 Parmi les causes suscitant l'amour, figure également le fait de privilégier ce qu'Allah aime par rapport à ce que tu aimes, et de les prioriser sur ce que tu aimes, quelles que soient tes envies ou tes inclinations. N'est-ce point Allah qui t'a créé et t'a amené à l'existence ?
 
@@ -102,7 +104,7 @@ Il est rapporté dans les deux recueils authentiques, selon un hadith d'Anas ibn
 > Quiconque possède ces trois qualités goûtera à la douceur de la foi : qu'Allah et Son Messager lui soient plus chers que tout le reste, qu'il n'aime une personne qu'en vue d'Allah, et qu'il déteste retourner à la mécréance après qu'Allah l'en a sauvé, comme il détesterait être précipité dans le Feu.[^7]
 
 
-# 6. L'attachement à l'adoration, en particulier la prière
+## L'attachement à l'adoration, en particulier la prière
 
 Parmi les causes suscitant l'amour, figure l'application dans l'adoration et le rapprochement vers Allah par ce qui Le satisfait, et plus particulièrement la prière. Elle est le réjouissement des yeux de ceux qui aiment, le délice de leurs âmes, le jardin des adorateurs et la joie de leurs êtres.
 
@@ -110,7 +112,7 @@ Elle est une miséricorde qu'Allah a offerte à Ses serviteurs croyants. Il les 
 
 Elle n'a cessé d'être prescrite aux prophètes antérieurs, comptant même parmi leurs meilleures œuvres. Elle est la balance de la foi et de ses législations : par son accomplissement, la condition du serviteur se parfait, et par son délaissement, toutes ses affaires s'en trouvent perturbées.
 
-# 7. La fréquentation des gens de bien
+## La fréquentation des gens de bien
 
 Parmi les moyens de susciter l'amour, il convient de fréquenter les gens de vertu, de piété, de foi et de droiture, afin de tirer profit de la quintessence de leurs paroles, de la noblesse de leurs actes ainsi que de la beauté de leur éthique et de leurs bienséances.
 
@@ -121,13 +123,13 @@ Dans un hadith rapporté par notre Prophète ﷺ, celui-ci a dit :
 
 Cela signifie qu'il ne faut se lier d'amitié qu'avec celui dont on agrée la religiosité et le comportement. En effet, si tu le fréquentes, il t'entraînera vers sa foi et ses moeurs : s'il est athée, il te traînera vers l'athéisme, s'il est libertin, il te mènera vers la débauche, etc. Mais s'il est vertueux et musulman, il te guidera vers la vertu et l'Islam.
 
-# 8. S'éloigner de ce qui détourne de l'amour d'Allah
+## S'éloigner de ce qui détourne de l'amour d'Allah
 
 Parmi les moyens de susciter l'amour, il importe de s'écarter des choses qui font écran entre le cœur et l'amour de son Seigneur et Maître. Elles sont si nombreuses à notre époque !
 
 Combien les distractions qui détournent et éloignent les cœurs de l'amour d'Allah foisonnent, à l'image des chaînes satellites dont beaucoup de gens sont éprouvés par la futilité et le faux qu'elles diffusent. Il en va de même pour la toile numérique qui a tout submergé, ainsi que les revues dégradantes et autres distractions et divertissements qui occupent les cœurs, rendent malade les âmes, affaiblissent la foi et s'interposent entre les cœurs et l'amour d'Al Rahman.
 
-# 9. L'invocation
+## L'invocation
 
 Parmi les moyens de susciter l'amour, figure l'invocation. Le serviteur a besoin d'Allah dans toutes ses affaires et demeure indigent envers Lui pour l'ensemble de ses nécessités, ne pouvant se passer de son Seigneur et Maître le temps d'un clin d'œil.
 
@@ -148,10 +150,8 @@ Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d
 
 Ô notre Seigneur, fais vivre nos cœurs par Ton amour, illumine nos poitrines par Ton obéissance et guide-nous vers Toi sur un droit chemin.
 
-**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr
+**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr  
 *Traduit par* : Azwaw Abou 'Abd Al Razzaq
-
-# Footnotes
 
 [^1]: [NDT] Les Noms d'Allah ont été conservés en phonétique arabe plutôt que traduits, et ce pour plusieurs raisons. D'une part, chaque Nom divin recèle une pluralité de sens qu'aucun équivalent français ne saurait embrasser pleinement : Al Salam désigne à la fois Celui qui est exempt de tout défaut et Celui de qui émane la paix ; Al Jabbar renvoie aussi bien au Tout-Puissant qui soumet les tyrans qu'au Miséricordieux qui répare les cœurs brisés. D'autre part, les Noms d'Allah sont « tawqifiyyah », c'est-à-dire établis par la Révélation : on ne saurait les modifier ni en forger de nouveaux, et une traduction risquerait de laisser croire que le terme français constitue lui-même un Nom divin. Enfin, cette approche permet aux lecteurs francophones d'apprendre la prononciation authentique des Noms qu'Allah S'est attribués, de les employer dans leurs invocations, et d'éviter certaines erreurs telles que croire qu'un terme traduit fait réellement partie des Noms d'Allah ou nommer son enfant par 'Abd annexé à ces termes. Si Allah me le permet, un glossaire détaillant ces significations sera mis en place et consultable sur le site.
 
