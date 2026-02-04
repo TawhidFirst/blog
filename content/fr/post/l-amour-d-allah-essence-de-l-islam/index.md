@@ -10,7 +10,7 @@ categories:
 draft: false
 ---
 
-Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[^1], à qui appartiennent les Noms les plus beaux et les Attributs les plus élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
+Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[^1], à qui appartiennent les Noms sublimes et les Attributs élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
 
 Il est la véritable vie dont celui qui en est privé figure parmi les morts, la lumière resplendissante dont celui qui est dépourvu sombre dans les abysses des ténèbres, le remède absolu dont celui qui est dénué voit son cœur assailli par toutes sortes de maux, et le délice parfait dont celui qui en est privé se voit accablé par une succession de tourments et de douleurs.
 
@@ -64,9 +64,9 @@ Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « En somme, rien n'est 
 
 ## La connaissance des Noms et Attributs d'Allah
 
-Parmi les choses qui suscitent l'amour figure la connaissance des Noms les plus beaux d'Allah et de Ses Attributs sublimes. En effet, plus le serviteur accroît sa connaissance d'Allah, plus son amour pour Lui augmente, plus il aspire à Son adoration et plus il s'éloigne de Sa désobéissance.
+Parmi les choses qui suscitent l'amour figure la connaissance des Noms sublimes d'Allah et de Ses Attributs élevés. En effet, plus le serviteur accroît sa connaissance d'Allah, plus son amour pour Lui augmente, plus il aspire à Son adoration et plus il s'éloigne de Sa désobéissance.
 
-Comment l'humanité pourrait-elle trouver sa voie et la situation des gens s'améliorer sans la connaissance de leur Celui qui les a initiés, fait exister distinctement et crées, Celui qui pourvoit à leur subsistance ? Comment le pourraient-ils sans connaître Ses Noms les plus beaux, Ses Attributs sublimes et Ses qualités parfaites qui témoignent de Sa perfection, de Sa majesté et de Sa grandeur, et attestent qu'Il est l'unique adoré en toute vérité ?
+Comment l'humanité pourrait-elle trouver sa voie et la situation des gens s'améliorer sans la connaissance de Celui qui les a initiés, fait exister distinctement et créés, Celui qui pourvoit à leur subsistance ? Comment le pourraient-ils sans connaître Ses Noms sublimes, Ses Attributs élevés et Ses qualités parfaites qui témoignent de Sa perfection, de Sa majesté et de Sa grandeur, et attestent qu'Il est l'unique adoré en toute vérité ?
 
 Il convient ici de savoir que la connaissance d'Allah se divise en deux catégories. La première est une connaissance de reconnaissance, commune aux hommes, qu'ils soient pieux ou pervers, obéissants ou rebelles. La seconde est une connaissance qui impose la pudeur envers Lui, l'amour pour Lui, l'attachement du cœur à Son Être, le désir de Sa rencontre, Sa crainte, le retour vers Lui, l'intimité en Sa compagnie et la fuite des créatures vers Lui.[^5]
 
@@ -146,7 +146,7 @@ Parmi les invocations de notre Prophète ﷺ, comme cela est rapporté dans les 
 > Je Te demande Ton amour, l'amour de ceux qui T'aiment, et l'amour de toute œuvre qui me rapproche de Ton amour.[^9]
 
 
-Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d'Allah et ce qui en découle, à savoir l'amour de ceux qu'Il aime parmi les prophètes et les pieux, ainsi que ce qu'Il aime parmi les ouevres et les actes d'adoration.
+Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d'Allah et ce qui en découle, à savoir l'amour de ceux qu'Il aime parmi les prophètes et les pieux, ainsi que ce qu'Il aime parmi les œuvres et les actes d'adoration.
 
 Ô notre Seigneur, fais vivre nos cœurs par Ton amour, illumine nos poitrines par Ton obéissance et guide-nous vers Toi sur un droit chemin.
 
