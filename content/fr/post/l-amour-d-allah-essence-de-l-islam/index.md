@@ -1,5 +1,7 @@
 ---
 title: L'amour d'Allah, essence de l'Islam
+description: Comment être aimé d'Allah ?
+image: image.jpg
 date: 2026-02-04
 tags:
 - Florilège des enseignements de l'islam
