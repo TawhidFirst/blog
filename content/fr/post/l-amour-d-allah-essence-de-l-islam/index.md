@@ -8,7 +8,7 @@ draft: false
 
 # L'amour d'Allah, essence de l'Islam
 
-Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[fn:1], à qui appartiennent les Noms les plus beaux et les Attributs les plus élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
+Certes, l'amour du Seigneur des mondes et du Créateur de l'ensemble des êtres, Allah, en dehors de qui il n'est point de divinité, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir, Al Khaliq, Al Bari, Al Musawwir, Dhil Jalal wal Ikram wal 'Adhama wal Jamal[^1], à qui appartiennent les Noms les plus beaux et les Attributs les plus élevés. Cet amour est l'âme de la religion islamique, elle est la subsistance des âmes, le fondement de la félicité, la pureté des cœurs, le pilier des œuvres et la voie de la réussite ici-bas comme dans l'au-delà. 
 
 Il est la véritable vie dont celui qui en est privé figure parmi les morts, la lumière resplendissante dont celui qui est dépourvu sombre dans les abysses des ténèbres, le remède absolu dont celui qui est dénué voit son cœur assailli par toutes sortes de maux, et le délice parfait dont celui qui en est privé se voit accablé par une succession de tourments et de douleurs.
 
@@ -16,7 +16,7 @@ Cet amour est le moteur des actions, l'accomplissement de la perfection et l'asc
 
 Il a été rapporté par le Prophète ﷺ, comme cité dans le Sahih d'Al Bukhari et d'autres recueils, d'après un hadith d'Abu Hurayra, qu'Allah l'agrée, qu'il a dit :
 
-> « Certes, quand Allah aime un serviteur, Il appelle Jibril et lui dit : "J'aime untel, aime-le donc." Jibril l'aime alors, puis il lance un appel dans le ciel en disant : "Allah aime untel, aimez-le donc." Alors, les habitants du ciel l'aiment à leur tour, puis on lui accorde l'acceptation sur terre. »[fn:2]
+> « Certes, quand Allah aime un serviteur, Il appelle Jibril et lui dit : "J'aime untel, aime-le donc." Jibril l'aime alors, puis il lance un appel dans le ciel en disant : "Allah aime untel, aimez-le donc." Alors, les habitants du ciel l'aiment à leur tour, puis on lui accorde l'acceptation sur terre. »[^2]
 
 
 Tel est le sens de la parole d'Allah ﷾ (dans le sens rapproché) :
@@ -27,7 +27,7 @@ Tel est le sens de la parole d'Allah ﷾ (dans le sens rapproché) :
 
 Allah est alors à ses côtés pour le soutenir, le protéger, le guider et lui accorder la réussite, conformément à ce qui est rapporté dans le Sahih d'Al Bukhari et ailleurs, d'après le Prophète ﷺ, relatant les paroles de son Seigneur :
 
-> « Quiconque se montre hostile à l'un de Mes alliés, Je lui déclare la guerre. Mon serviteur ne se rapproche pas de Moi par une œuvre qui M'est plus aimable que celle que Je lui ai prescrite. Et Mon serviteur ne cesse de se rapprocher de Moi par des œuvres surérogatoires jusqu'à ce que Je l'aime. Et lorsque Je l'aime, Je deviens son ouïe par laquelle il entend, sa vue par laquelle il voit, sa main par laquelle il saisit et son pied avec lequel il marche. S'il Me demande, Je lui donne certes, et s'il cherche refuge auprès de Moi, Je le lui accorde certes. »[fn:3]
+> « Quiconque se montre hostile à l'un de Mes alliés, Je lui déclare la guerre. Mon serviteur ne se rapproche pas de Moi par une œuvre qui M'est plus aimable que celle que Je lui ai prescrite. Et Mon serviteur ne cesse de se rapprocher de Moi par des œuvres surérogatoires jusqu'à ce que Je l'aime. Et lorsque Je l'aime, Je deviens son ouïe par laquelle il entend, sa vue par laquelle il voit, sa main par laquelle il saisit et son pied avec lequel il marche. S'il Me demande, Je lui donne certes, et s'il cherche refuge auprès de Moi, Je le lui accorde certes. »[^3]
 
 
 Cela signifie qu'Allah ﷾, l'épaule et l'oriente dans son ouïe, sa vue, ses membres et dans toutes ses situations, répond à ses invocations et le préserve des maux des hommes et des djinns. Les fruits de cet amour, ses effets, ses bienfaits et ses grâces pour ceux qui aiment, ici-bas comme dans l'au-delà, sont innombrables et incalculables.
@@ -58,7 +58,7 @@ Et Il a dit :
 
 Que de guidées pour les cœurs, de réforme pour les âmes et de renforcement de l'amour se trouvent dans cette lecture et cette méditation.
 
-Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « En somme, rien n'est plus bénéfique pour le cœur que la lecture du Coran avec méditation et réflexion, car il réunit toutes les étapes des cheminants, les états des dévots et les demeures des connaisseurs. C'est lui qui engendre l'amour, le désir, la crainte, l'espoir, le repentir, la confiance, la satisfaction, la remise de soi, la gratitude, la patience et l'ensemble des états par lesquels le cœur vit et atteint sa perfection. De même, il préserve de tous les caractères et actes blâmables qui causent la corruption et la perte du cœur. »[fn:4]
+Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « En somme, rien n'est plus bénéfique pour le cœur que la lecture du Coran avec méditation et réflexion, car il réunit toutes les étapes des cheminants, les états des dévots et les demeures des connaisseurs. C'est lui qui engendre l'amour, le désir, la crainte, l'espoir, le repentir, la confiance, la satisfaction, la remise de soi, la gratitude, la patience et l'ensemble des états par lesquels le cœur vit et atteint sa perfection. De même, il préserve de tous les caractères et actes blâmables qui causent la corruption et la perte du cœur. »[^4]
 
 # 2. La connaissance des Noms et Attributs d'Allah
 
@@ -66,7 +66,7 @@ Parmi les choses qui suscitent l'amour figure la connaissance des Noms les plus 
 
 Comment l'humanité pourrait-elle trouver sa voie et la situation des gens s'améliorer sans la connaissance de leur Celui qui les a initiés, fait exister distinctement et crées, Celui qui pourvoit à leur subsistance ? Comment le pourraient-ils sans connaître Ses Noms les plus beaux, Ses Attributs sublimes et Ses qualités parfaites qui témoignent de Sa perfection, de Sa majesté et de Sa grandeur, et attestent qu'Il est l'unique adoré en toute vérité ?
 
-Il convient ici de savoir que la connaissance d'Allah se divise en deux catégories. La première est une connaissance de reconnaissance, commune aux hommes, qu'ils soient pieux ou pervers, obéissants ou rebelles. La seconde est une connaissance qui impose la pudeur envers Lui, l'amour pour Lui, l'attachement du cœur à Son Être, le désir de Sa rencontre, Sa crainte, le retour vers Lui, l'intimité en Sa compagnie et la fuite des créatures vers Lui.[fn:5]
+Il convient ici de savoir que la connaissance d'Allah se divise en deux catégories. La première est une connaissance de reconnaissance, commune aux hommes, qu'ils soient pieux ou pervers, obéissants ou rebelles. La seconde est une connaissance qui impose la pudeur envers Lui, l'amour pour Lui, l'attachement du cœur à Son Être, le désir de Sa rencontre, Sa crainte, le retour vers Lui, l'intimité en Sa compagnie et la fuite des créatures vers Lui.[^5]
 
 Cette connaissance est la source de tout bien, le foyer de toute vertu et la plus profitable des voies menant à l'amour [d'Allah].
 
@@ -84,7 +84,7 @@ Médite sur Celui qui a façonné pour toi ce corps harmonieux… Celui qui a ou
 
 Notre Prophète ﷺ, comme cela est établi dans le recueil authentique, lorsqu'il regagnait son lit chaque nuit, se souvenait des faveurs d'Allah et disait, en Le louant et L'exaltant :
 
-> « Toutes les louanges reviennent de droit à Allah qui nous a nourris, nous a abreuvés, nous a suffi et nous a donné refuge, car combien sont ceux qui n'ont personne pour leur suffire ni pour leur donner refuge. »[fn:6]
+> « Toutes les louanges reviennent de droit à Allah qui nous a nourris, nous a abreuvés, nous a suffi et nous a donné refuge, car combien sont ceux qui n'ont personne pour leur suffire ni pour leur donner refuge. »[^6]
 
 
 # 4. La méditation sur les créatures d'Allah
@@ -99,7 +99,7 @@ Parmi les causes suscitant l'amour, figure également le fait de privilégier ce
 
 Il est rapporté dans les deux recueils authentiques, selon un hadith d'Anas ibn Malik, qu'Allah l'agrée, que le Prophèteﷺ a dit :
 
-> Quiconque possède ces trois qualités goûtera à la douceur de la foi : qu'Allah et Son Messager lui soient plus chers que tout le reste, qu'il n'aime une personne qu'en vue d'Allah, et qu'il déteste retourner à la mécréance après qu'Allah l'en a sauvé, comme il détesterait être précipité dans le Feu.[fn:7]
+> Quiconque possède ces trois qualités goûtera à la douceur de la foi : qu'Allah et Son Messager lui soient plus chers que tout le reste, qu'il n'aime une personne qu'en vue d'Allah, et qu'il déteste retourner à la mécréance après qu'Allah l'en a sauvé, comme il détesterait être précipité dans le Feu.[^7]
 
 
 # 6. L'attachement à l'adoration, en particulier la prière
@@ -116,7 +116,7 @@ Parmi les moyens de susciter l'amour, il convient de fréquenter les gens de ver
 
 Dans un hadith rapporté par notre Prophète ﷺ, celui-ci a dit :
 
-> L'homme suit la religion de son ami intime. Que chacun de vous regarde donc qui il prend pour ami.[fn:8]
+> L'homme suit la religion de son ami intime. Que chacun de vous regarde donc qui il prend pour ami.[^8]
 
 
 Cela signifie qu'il ne faut se lier d'amitié qu'avec celui dont on agrée la religiosité et le comportement. En effet, si tu le fréquentes, il t'entraînera vers sa foi et ses moeurs : s'il est athée, il te traînera vers l'athéisme, s'il est libertin, il te mènera vers la débauche, etc. Mais s'il est vertueux et musulman, il te guidera vers la vertu et l'Islam.
@@ -141,7 +141,7 @@ Allah a fait leur éloge à ce sujet dans le Noble Coran, citant un ensemble de 
 
 Parmi les invocations de notre Prophète ﷺ, comme cela est rapporté dans les Sunan d'Al Tirmidhi et d'autres, il disait :
 
-> Je Te demande Ton amour, l'amour de ceux qui T'aiment, et l'amour de toute œuvre qui me rapproche de Ton amour.[fn:9]
+> Je Te demande Ton amour, l'amour de ceux qui T'aiment, et l'amour de toute œuvre qui me rapproche de Ton amour.[^9]
 
 
 Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d'Allah et ce qui en découle, à savoir l'amour de ceux qu'Il aime parmi les prophètes et les pieux, ainsi que ce qu'Il aime parmi les ouevres et les actes d'adoration.
@@ -153,20 +153,20 @@ Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d
 
 # Footnotes
 
-[fn:1] [NDT] Les Noms d'Allah ont été conservés en phonétique arabe plutôt que traduits, et ce pour plusieurs raisons. D'une part, chaque Nom divin recèle une pluralité de sens qu'aucun équivalent français ne saurait embrasser pleinement : Al Salam désigne à la fois Celui qui est exempt de tout défaut et Celui de qui émane la paix ; Al Jabbar renvoie aussi bien au Tout-Puissant qui soumet les tyrans qu'au Miséricordieux qui répare les cœurs brisés. D'autre part, les Noms d'Allah sont « tawqifiyyah », c'est-à-dire établis par la Révélation : on ne saurait les modifier ni en forger de nouveaux, et une traduction risquerait de laisser croire que le terme français constitue lui-même un Nom divin. Enfin, cette approche permet aux lecteurs francophones d'apprendre la prononciation authentique des Noms qu'Allah S'est attribués, de les employer dans leurs invocations, et d'éviter certaines erreurs telles que croire qu'un terme traduit fait réellement partie des Noms d'Allah ou nommer son enfant par 'Abd annexé à ces termes. Si Allah me le permet, un glossaire détaillant ces significations sera mis en place et consultable sur le site.
+[^1]: [NDT] Les Noms d'Allah ont été conservés en phonétique arabe plutôt que traduits, et ce pour plusieurs raisons. D'une part, chaque Nom divin recèle une pluralité de sens qu'aucun équivalent français ne saurait embrasser pleinement : Al Salam désigne à la fois Celui qui est exempt de tout défaut et Celui de qui émane la paix ; Al Jabbar renvoie aussi bien au Tout-Puissant qui soumet les tyrans qu'au Miséricordieux qui répare les cœurs brisés. D'autre part, les Noms d'Allah sont « tawqifiyyah », c'est-à-dire établis par la Révélation : on ne saurait les modifier ni en forger de nouveaux, et une traduction risquerait de laisser croire que le terme français constitue lui-même un Nom divin. Enfin, cette approche permet aux lecteurs francophones d'apprendre la prononciation authentique des Noms qu'Allah S'est attribués, de les employer dans leurs invocations, et d'éviter certaines erreurs telles que croire qu'un terme traduit fait réellement partie des Noms d'Allah ou nommer son enfant par 'Abd annexé à ces termes. Si Allah me le permet, un glossaire détaillant ces significations sera mis en place et consultable sur le site.
 
-[fn:2] Rapporté par Al Bukhari (3209) et Muslim (2637).
+[^2]: Rapporté par Al Bukhari (3209) et Muslim (2637).
 
-[fn:3] Rapporté par Al Bukhari (6502).
+[^3]: Rapporté par Al Bukhari (6502).
 
-[fn:4] Miftah Dar Al Sa'ada (p. 204).
+[^4]: Miftah Dar Al Sa'ada (p. 204).
 
-[fn:5] Voir Al Fawa'id d'Ibn Al Qayyim (p. 190).
+[^5]: Voir Al Fawa'id d'Ibn Al Qayyim (p. 190).
 
-[fn:6] Rapporté par Muslim (2715).
+[^6]: Rapporté par Muslim (2715).
 
-[fn:7] Rapporté par Al Bukhari (16) et Muslim (43).
+[^7]: Rapporté par Al Bukhari (16) et Muslim (43).
 
-[fn:8] Rapporté par Abu Dawud (4833), Al Tirmidhi (2378) et Ahmad (8398), jugé bon par Al Albani, Hidayat Al Ruwat (4946)].
+[^8]: Rapporté par Abu Dawud (4833), Al Tirmidhi (2378) et Ahmad (8398), jugé bon par Al Albani, Hidayat Al Ruwat (4946)].
 
-[fn:9] Rapporté par Al Tirmidhi (3235), authentifié par Al Albani.
+[^9]: Rapporté par Al Tirmidhi (3235), authentifié par Al Albani.
