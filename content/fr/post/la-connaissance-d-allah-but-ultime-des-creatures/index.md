@@ -21,7 +21,7 @@ Nul doute que cette connaissance constitue la plus noble des sciences religieuse
 > La prédication des messagers s'articule autour de trois fondements. Le premier : faire connaître le Seigneur vers lequel on appelle par Ses Noms, Ses Attributs et Ses actes. Le deuxième : faire connaître la voie qui mène à Lui, à savoir Son évocation, Son remerciement et Son adoration, laquelle réunit l'amour parfait et l'humilité totale à Son égard. Le troisième : leur faire connaître ce qui leur revient après être parvenus à Lui dans la demeure de Son honneur. Là se trouvent des délices dont les plus éminents et les plus nobles sont Son agrément envers eux, Sa manifestation à eux, leur vision de Sa Face suprême, Son salut sur eux et le fait qu'Il leur parle. [^1]
 
 
-Notre Prophète Muhammad ﷺ a reçu de cela la part la plus complète :
+Notre Prophète Mohammad ﷺ a reçu de cela la part la plus complète :
 
 > Il a fait connaître aux gens leur Seigneur et leur Adoré au maximum de ce que leurs facultés peuvent atteindre comme connaissance. Il a répété et réitéré, tantôt en abrégeant, tantôt en s'étendant sur Ses Noms, Ses Attributs et Ses actes, jusqu'à ce que Sa connaissance, exalté soit-Il, resplendisse dans les cœurs de Ses serviteurs croyants. Les nuées du doute et de l'incertitude s'en dissipèrent comme se retirent les nuages devant la pleine lune. Il n'a laissé à sa communauté aucun besoin dans cette connaissance, ni des prédécesseurs, ni des successeurs. Il leur a suffi, les a guéris et les a dispensés de quiconque pour aborder ce sujet : « Ne leur suffit-il pas que Nous ayons fait descendre sur toi le Livre qui leur est récité ? Il y a certes là une miséricorde et un rappel pour des gens qui croient. » [Sourate 29, v.51] [^2]
 
