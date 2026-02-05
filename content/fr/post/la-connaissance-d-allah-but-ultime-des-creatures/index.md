@@ -95,6 +95,9 @@ Il sort de la vie sans avoir goûté ce qu'elle a de plus savoureux, et quitte c
 
 Car le plaisir parfait, la joie, l'allégresse, la douceur de vivre et le délice ne se trouvent que dans la connaissance d'Allah et Son Tawhid, Sa proximité et le désir de Sa rencontre. La vie la plus amère est celle d'un cœur dispersé et d'un esprit déchiré qui n'a ni intention droite à poursuivre ni chemin clair à emprunter. Les routes se sont ramifiées devant lui, les voies se sont multipliées. Sur chaque chemin il y a un trébuchement, sur chaque voie un faux pas. Perplexe, il erre sur terre sans trouver de chemin. Quand bien même il parcourrait tous ces sentiers, son cœur ne trouverait pas de repos, ne s'apaiserait pas, ne serait pas serein et son œil ne se réjouirait pas, jusqu'à ce qu'il trouve la quiétude auprès de sa Divinité, son Seigneur, son Maître et son Protecteur, Celui en dehors de qui il n'a ni allié ni intercesseur, et dont il ne peut se passer le temps d'un clin d'œil.
 
+**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+
 [^1]: Al Sawa'iq Al Mursala (4/1489).
 
 [^2]: Jala' Al Afham (p. 285-286).
