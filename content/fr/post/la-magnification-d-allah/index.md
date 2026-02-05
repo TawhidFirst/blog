@@ -1,6 +1,6 @@
 ---
 title: La magnification d'Allah
-date: 2026-02-05
+date: 2026-02-06
 tags:
 - Florilège des enseignements de l'islam
 categories:
