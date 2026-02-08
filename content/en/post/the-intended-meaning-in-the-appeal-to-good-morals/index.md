@@ -2,7 +2,7 @@
 title: How to Understand this Hadith that Calls for Good Morals?
 description: The best behavior is towards your Lord
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fatawa

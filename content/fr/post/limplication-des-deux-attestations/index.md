@@ -2,7 +2,7 @@
 title: Qu'est-ce qui est voulu dans l'attestation que Mohammed est le messager d'Allah ?
 description: Le sens de la deuxième attestation de foi et son lien avec la première
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fatawa

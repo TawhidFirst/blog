@@ -2,7 +2,7 @@
 title: Is the food made on the occasion of Mawlid permissible ?
 description: Behavior to adopt in the face of innovation
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fatawa

@@ -2,7 +2,7 @@
 title: L'amour des images interdites rentre-t-il dans le Shirk ?
 description: Crains Allah dans ce que tu vois
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fatawa

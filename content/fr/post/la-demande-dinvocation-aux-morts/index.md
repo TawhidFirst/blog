@@ -2,7 +2,7 @@
 title: La demande d'invocation aux morts, innovation ou Shirk ?
 description: Détail sur cette question qui touche la croyance
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fatawa
