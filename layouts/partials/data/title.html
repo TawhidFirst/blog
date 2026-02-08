@@ -12,7 +12,7 @@
 {{- $title = $title | append (default $siteTitle $pageTitle) -}}
 
 {{- if .IsHome -}}
-    {{- $title = $title | append "Articles et traductions sur le Tawhid et l'Islam" -}}
+    {{- $title = $title | append "Traductions sur le Tawhid et l'Islam" -}}
 {{- end -}}
 
 {{ return delimit $title " — " }}
