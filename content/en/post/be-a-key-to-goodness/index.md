@@ -2,7 +2,7 @@
 title: Be a key to goodness
 description: Nine points to achieve this goal
 image: image.jpg
-draft: False
+draft: True
 date: 2024-04-24
 categories: 
 - Fawaïd

@@ -2,7 +2,7 @@
 title: Le bienfait de la difficulté
 description: Si tu es dans la difficulté et l'épreuve lis cette parole
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd

@@ -2,7 +2,7 @@
 title: Les efforts à fournir dans l'appel au Tawhid
 description: La communauté a grand besoin de ce rappel
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd

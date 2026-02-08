@@ -2,7 +2,7 @@
 title: La foi en Allah, la porte du salut
 description: La seule porte qui te sort de la perdition
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd

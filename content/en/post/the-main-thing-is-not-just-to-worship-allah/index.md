@@ -2,7 +2,7 @@
 title: The main thing is not just to worship Allah
 description: Worshipping Allah is not enough
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd

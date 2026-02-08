@@ -2,7 +2,7 @@
 title: To the one who couldn't make the pilgrimage this year
 description: Perform these worship even from home
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd

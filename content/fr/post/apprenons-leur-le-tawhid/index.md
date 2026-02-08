@@ -2,7 +2,7 @@
 title: Apprenons-leur le Tawhid
 description: Sois une cause de bien pour la communauté
 image: image.jpg
-draft: False
+draft: True
 date: 2023-08-01
 categories:
 - Fawaïd
