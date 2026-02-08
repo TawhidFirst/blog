@@ -4,7 +4,8 @@ description: Sais-tu qu'il existe un jeûne continuel
 image: image.jpg
 draft: False
 date: 2024-03-14
-tag: Ramadan
+tags:
+  - Ramadan
 categories: Articles
 ---
 

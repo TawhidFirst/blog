@@ -4,7 +4,8 @@ description: Ils sont multiples et sa récompense est grande
 image: image.jpg
 draft: False
 date: 2024-03-13
-tag: Ramadan
+tags:
+  - Ramadan
 categories: Articles
 ---
 
