@@ -1,0 +1,78 @@
+{{- $pag := $.Paginator -}}
+{{- if gt $pag.TotalPages 1 -}}
+<nav class="pagination" role="navigation" aria-label="pagination">
+    {{- /* Previous page button */ -}}
+    {{- if $pag.Prev -}}
+    <a class="page-link" href="{{ $pag.Prev.URL }}" aria-label="Previous page">
+        {{ partial "helper/icon" "chevron-left" }}
+    </a>
+    {{- else -}}
+    <span class="page-link disabled" aria-disabled="true" aria-label="Previous page">
+        {{ partial "helper/icon" "chevron-left" }}
+    </span>
+    {{- end -}}
+
+    {{- /* First page */ -}}
+    {{- if eq $pag.PageNumber 1 -}}
+    <a class="page-link current" aria-label="Page 1" aria-current="page">
+        1
+    </a>
+    {{- else -}}
+    <a class="page-link" aria-label="Page 1" href="{{ $pag.First.URL }}">
+        1
+    </a>
+    {{- end -}}
+
+    {{- /* Left ellipsis */ -}}
+    {{- if gt $pag.PageNumber 3 -}}
+    <span class="page-link pagination-link">
+        {{ partial "helper/icon" "dots" }}
+    </span>
+    {{- end -}}
+
+    {{- /* Middle pages */ -}}
+    {{- $window := 4 -}}
+    {{- range $pag.Pagers -}}
+        {{- if and (gt .PageNumber 1) (lt .PageNumber $pag.TotalPages) -}}
+            {{- if and (ge .PageNumber (sub $pag.PageNumber $window)) (le .PageNumber (add $pag.PageNumber $window)) -}}
+            <a class="page-link {{ if eq .PageNumber $pag.PageNumber }}current{{ end }}"
+                {{- if eq .PageNumber $pag.PageNumber }} aria-current="page"{{ end }} href="{{ .URL }}"
+                aria-label="Page {{ .PageNumber }}">
+                {{ .PageNumber }}
+            </a>
+            {{- end -}}
+        {{- end -}}
+    {{- end -}}
+
+    {{- /* Right ellipsis */ -}}
+    {{- if lt $pag.PageNumber (sub $pag.TotalPages 2) -}}
+    <span class="page-link pagination-link">
+        {{ partial "helper/icon" "dots" }}
+    </span>
+    {{- end -}}
+
+    {{- /* Last page */ -}}
+    {{- if gt $pag.TotalPages 1 -}}
+        {{- if eq $pag.PageNumber $pag.TotalPages -}}
+        <a class="page-link current" aria-label="Page {{ $pag.TotalPages }}" aria-current="page">
+            {{ $pag.TotalPages }}
+        </a>
+        {{- else -}}
+        <a class="page-link" href="{{ $pag.Last.URL }}" aria-label="Page {{ $pag.TotalPages }}">
+            {{ $pag.TotalPages }}
+        </a>
+        {{- end -}}
+    {{- end -}}
+
+    {{- /* Next page button */ -}}
+    {{- if $pag.Next -}}
+    <a class="page-link" href="{{ $pag.Next.URL }}" aria-label="Next page">
+        {{ partial "helper/icon" "chevron-right" }}
+    </a>
+    {{- else -}}
+    <span class="page-link disabled" aria-disabled="true" aria-label="Next page">
+        {{ partial "helper/icon" "chevron-right" }}
+    </span>
+    {{- end -}}
+</nav>
+{{- end -}}
