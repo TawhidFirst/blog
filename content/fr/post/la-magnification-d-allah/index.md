@@ -10,8 +10,6 @@ image: image.jpg
 draft: false
 ---
 
-## La magnification d'Allah
-
 Quiconque magnifie Allah, pureté à Lui, et L'estime à Sa juste mesure voit s'accomplir sa réussite et son bonheur ici-bas et dans l'au-delà. En vérité, la magnification d'Allah est le fondement même de la félicité. Comment un cœur qui ne magnifie pas son Seigneur, son Créateur, son Maître et son Protecteur pourrait-il réussir et connaître le bonheur ? Celui qui magnifie Allah reconnaît Son droit exclusif à l'humilité, à la soumission, au recueillement et à l'abaissement devant Lui. Il vénère Sa législation, magnifie Sa religion et reconnaît le rang de Ses messagers. Cette magnification d'Allah, pureté à Lui, constitue un socle inébranlable sur lequel repose la religion islamique. Bien plus, l'essence même de l'adoration en Islam réside dans la magnification.
 
 Il est établi dans le hadith authentique que notre Prophète ﷺ, le maître des fils d'Adam, l'imam des premiers et des derniers, le modèle de toutes les créatures et le plus pieux des hommes envers le Seigneur des univers, lui qui m'est plus cher que mon père et ma mère, que les éloges d'Allah et le salut soient sur lui, prononçait dans son inclinaison et sa prosternation :
@@ -88,8 +86,6 @@ Car :
 
 **Écrit par**: Cheikh 'Abd Al Razzaq Al Badr
 *Traduit par* : Azwaw Abou 'Abd Al Razzaq
-
-## Footnotes
 
 [^1]: Rapporté par Abu Dawud (873) et Al Nasa'i (1132).
 
