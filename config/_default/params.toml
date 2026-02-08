@@ -3,6 +3,7 @@ mainSections = ["post"]
 # Output page's full content in RSS.
 rssFullContent = true
 favicon = "img/favicon.ico"
+description = "Blog francophone dédié au Tawhid et à l'Islam authentique. Traductions d'ouvrages de savants reconnus, articles sur la croyance, l'adoration et les enseignements prophétiques."
 
 [footer]
 since = 2014
