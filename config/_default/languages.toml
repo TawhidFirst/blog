@@ -10,6 +10,9 @@ languagedirection = "ltr"
 contentDir = "content/en"
 weight = 2
 
+[en.params]
+description = "Website dedicated to Tawhid and authentic Islam. Translations of works by recognized scholars, articles on creed, worship and prophetic teachings."
+
 [en.params.sidebar]
 subtitle = "The Tawhid is the sense and essence of your existence!"
 avatar.enabled = true
