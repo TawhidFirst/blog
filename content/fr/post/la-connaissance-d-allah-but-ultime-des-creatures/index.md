@@ -20,62 +20,49 @@ Nul doute que cette connaissance constitue la plus noble des sciences religieuse
 
 > La prédication des messagers s'articule autour de trois fondements. Le premier : faire connaître le Seigneur vers lequel on appelle par Ses Noms, Ses Attributs et Ses actes. Le deuxième : faire connaître la voie qui mène à Lui, à savoir Son évocation, Son remerciement et Son adoration, laquelle réunit l'amour parfait et l'humilité totale à Son égard. Le troisième : leur faire connaître ce qui leur revient après être parvenus à Lui dans la demeure de Son honneur. Là se trouvent des délices dont les plus éminents et les plus nobles sont Son agrément envers eux, Sa manifestation à eux, leur vision de Sa Face suprême, Son salut sur eux et le fait qu'Il leur parle. [^1]
 
-
 Notre Prophète Mohammad ﷺ a reçu de cela la part la plus complète :
 
 > Il a fait connaître aux gens leur Seigneur et leur Adoré au maximum de ce que leurs facultés peuvent atteindre comme connaissance. Il a répété et réitéré, tantôt en abrégeant, tantôt en s'étendant sur Ses Noms, Ses Attributs et Ses actes, jusqu'à ce que Sa connaissance, exalté soit-Il, resplendisse dans les cœurs de Ses serviteurs croyants. Les nuées du doute et de l'incertitude s'en dissipèrent comme se retirent les nuages devant la pleine lune. Il n'a laissé à sa communauté aucun besoin dans cette connaissance, ni des prédécesseurs, ni des successeurs. Il leur a suffi, les a guéris et les a dispensés de quiconque pour aborder ce sujet : « Ne leur suffit-il pas que Nous ayons fait descendre sur toi le Livre qui leur est récité ? Il y a certes là une miséricorde et un rappel pour des gens qui croient. » [Sourate 29, v.51] [^2]
-
-
 
 Le Livre d'Allah contient des versets abondants et des textes convergents appelant à connaître Allah, à connaître Ses Noms sublimes et Ses Attributs élevés. Ces versets exposent les effets louables de cette connaissance, les aboutissements avisés et les fins heureuses. Allah le Très-Haut dit (dans le sens rapproché) :
 
 > C'est à Allah qu'appartiennent les Noms sublimes. Invoquez-Le par ces Noms et laissez ceux qui profanent Ses Noms. Ils seront rétribués pour ce qu'ils faisaient. [Sourate 7, v.180]
 
-
 Allah le Très-Haut dit également :
 
 > Dis : « Invoquez Allah ou invoquez le Tout Miséricordieux. Quel que soit le nom par lequel vous L'invoquez, Il a les Noms les plus beaux. » [Sourate 17, v.110]
-
 
 Il dit encore :
 
 > Allah ! Point de divinité qui mérite l'adoration à part Lui. À Lui les Noms les plus beaux. [Sourate 20, v.8]
 
-
 Et Il dit :
 
-> C'est Lui Allah. Nulle divinité ne mérite l'adoration en dehors de Lui, le Connaisseur de l'invisible et du visible. C'est Lui le Tout Miséricordieux, le Très Miséricordieux. C'est Lui Allah. Nulle divinité ne mérite l'adoration en dehors de Lui, le Souverain, le Pur, l'Apaisant, le Rassurant, le Prédominant, le Tout-Puissant, le Contraignant, l'Orgueilleux. Gloire à Allah au-dessus de ce qu'ils Lui associent ! C'est Lui Allah, le Créateur, le Producteur, le Façonneur. À Lui les Noms les plus beaux. Tout ce qui est dans les cieux et la terre Le glorifie. Et c'est Lui le Tout-Puissant, le Sage. [Sourate 59, v.22-24]
-
+> C'est Lui Allah. Nulle divinité ne mérite l'adoration en dehors de Lui, 'Alim Al Ghayb wash Shahada. C'est Lui Al Rahman, Al Rahim. C'est Lui Allah. Nulle divinité ne mérite l'adoration en dehors de Lui, Al Malik, Al Quddus, Al Salam, Al Mumin, Al Muhaymin, Al 'Aziz, Al Jabbar, Al Mutakabbir. Pureté à Allah au-dessus de ce qu'ils Lui associent ! C'est Lui Allah, Al Khaliq, Al Bari, Al Musawwir. À Lui les Noms les plus beaux. Tout ce qui est dans les cieux et la terre Le glorifie. Et c'est Lui Al 'Aziz, Al Hakim. [Sourate 59, v.22-24]
 
 Bien plus, le Noble Coran contient des versets explicites et des textes clairs appelant à apprendre les Noms et Attributs, à les connaître et à connaître Allah par eux. Le Coran compte près de trente versets appelant à la science des Noms et Attributs d'Allah. Parmi eux, Sa parole :
 
 > Sachez qu'Allah est Puissant et Sage. [Sourate 2, v.209]
 
-
 Sa parole :
 
 > Sachez qu'Allah est sévère en châtiment et qu'Allah est Pardonneur et Miséricordieux. [Sourate 5, v.98]
-
 
 Sa parole :
 
 > Et sachez qu'Allah Se suffit à Lui-même et qu'Il est Digne de louange. [Sourate 2, v.267]
 
-
 Sa parole :
 
 > Et sachez qu'Allah est Audient et Omniscient. [Sourate 2, v.244]
-
 
 Sa parole :
 
 > Sache donc qu'il n'y a point de divinité à part Allah. [Sourate 47, v.19]
 
-
 Et Sa parole :
 
 > Allah qui a créé sept cieux et autant de terres. Entre eux descend Son commandement, afin que vous sachiez qu'Allah est en vérité Omnipotent et qu'Allah a embrassé toute chose de Son savoir. [Sourate 65, v.12]
-
 
 Les versets en ce sens sont nombreux.
 
