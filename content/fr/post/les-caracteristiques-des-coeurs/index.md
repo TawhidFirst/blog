@@ -6,7 +6,7 @@ image: image.jpg
 draft: False
 date: 2026-01-26
 tags:
-- Hadiths sur la réforme des cœurs
+- Hadiths sur la réforme des coeurs
 categories:
 - Articles
 ---
