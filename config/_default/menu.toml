@@ -8,14 +8,6 @@
 #newtab = true
 
 [[social]]
-identifier = "twitter"
-name = "Twitter"
-url = "https://twitter.com/tawhid_first"
-
-[social.params]
-icon = "brand-twitter"
-
-[[social]]
 identifier = "youtube"
 name = "Youtube"
 url = "https://www.youtube.com/c/TawhidfirstFr"
