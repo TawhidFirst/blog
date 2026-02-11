@@ -48,7 +48,7 @@ Gloire à Celui qui a créé et harmonisé, et qui a déterminé et guidé, Lui 
 
 > Et en vous-mêmes, ne voyez-vous donc pas ? [Sourate 51, v.21]
 
-'Uthman Al Qurashi a dit : « Toutes les créatures, de l'atome au Trône, sont des sentiers menant à Sa connaissance, le Très-Haut, et des preuves éclatantes de Son éternité. L'univers entier est une multitude de langues proclamant Son unicité, et le monde est un livre dont les clairvoyants lisent les caractères selon la mesure de leur propre discernement ».[^2]
+'Uthman Al Qurashi a dit : « Toutes les créatures, de la minuscule fourmi au Trône, sont des sentiers menant à Sa connaissance, le Très-Haut, et des preuves éclatantes de Son éternité. L'univers entier est une multitude de langues proclamant Son unicité, et le monde est un livre dont les clairvoyants lisent les caractères selon la mesure de leur propre discernement ».[^2]
 
 L'examen attentif de ces signes, ainsi que de tout ce qu'Allah a créé dans les cieux et sur la terre, leur méditation et l'exercice de la réflexion à leur sujet, comptent parmi les actes les plus bénéfiques pour l'homme afin de fortifier sa foi et de l'affermir. Il découvre à travers eux l'unicité de son Créateur et de son Souverain, ainsi que Sa perfection, pureté à Lui le Très-Haut. Son amour, sa vénération et son respect pour Lui s'en trouvent accrus, de même que son obéissance, sa soumission et son humilité. C'est là l'un des plus nobles fruits de cette contemplation.
 
@@ -74,7 +74,7 @@ Et le Très-Haut a dit :
 
 > Ne considèrent-ils donc pas les chameaux, comment ils ont été créés ? Et le ciel, comment il a été élevé ? Et les montagnes, comment elles ont été dressées ? Et la terre, comment elle a été aplanie ? [Sourate 88, v.17-20]
 
-D'autres versets encore, fort nombreux dans le Coran, invitent les serviteurs à observer Ses signes et Ses œuvres, qui constituent la plus grande preuve de Son unicité, de Sa singularité, de Sa puissance, de Sa volonté et de Sa science, pureté à Lui le Très-Haut, ainsi que de Sa bonté, de Sa subtilité et de Sa générosité. Cela constitue le plus puissant motif incitant les serviteurs à aimer Allah, à Le remercier, à Le vénérer, à Lui obéir et à s'attacher à Son évocation. Il apparaît ainsi clairement que l'observation de l'univers et sa méditation comptent parmi les plus grandes causes de la foi et ses moteurs les plus profitables.
+D'autres versets encore, fort nombreux dans le Coran, invitent les serviteurs à observer Ses signes et Ses œuvres, qui constituent la plus grande preuve de Son unicité, de Sa singularité, de Sa puissance, de Sa volonté et de Sa science, pureté à Lui le Très-Haut, ainsi que de Sa bonté, de Sa délicatesse et de Sa générosité. Cela constitue le plus puissant motif incitant les serviteurs à aimer Allah, à Le remercier, à Le vénérer, à Lui obéir et à s'attacher à Son évocation. Il apparaît ainsi clairement que l'observation de l'univers et sa méditation comptent parmi les plus grandes causes de la foi et ses moteurs les plus profitables.
 
 **Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
 *Traduit par* : Azwaw Abou 'Abd Al Razzaq
