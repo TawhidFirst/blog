@@ -28,7 +28,7 @@ d'Allah.
 
 L'attestation que nulle divinité ne mérite l'adoration excepté Allah [La ilaha ila Allah]
 n'est pas valable sans celle que Mohammed est le messager d'Allah. Elle n'est pas
-acceptée, et on ne juge pas l'islam de celui qui mécroit au message de Mohammed.
+acceptée, et on ne juge pas l'Islam de celui qui mécroit au message de Mohammed.
 
 Le sens de Mohammed est le messager d'Allah est :
 - la reconnaissance de son message de manière apparente et cachée;

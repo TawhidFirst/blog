@@ -1,9 +1,10 @@
 ---
 title: Le bienfait de la guidance vers la religion de l'Islam
+description: L'Islam est la faveur suprême et le don le plus noble d'Allah envers Ses serviteurs.
 image: image.jpg
 date: 2026-02-12
 tags:
-- Florilège des enseignements de l'islam
+- Florilège des enseignements de l'Islam
 categories:
 - Articles
 draft: false

@@ -376,7 +376,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
     > « Mais Allah vous a fait aimer la foi et l'a embellie dans vos cœurs, et Il vous a fait haïr la mécréance, la perversité et la désobéissance. Tels sont ceux qui sont bien guidés. » [Sourate 49, v.7]
 
-    > « Ils te rappellent leur conversion à l'islam comme si c'était une faveur de leur part. Dis : "Ne me rappelez pas votre conversion à l'islam comme une faveur. C'est tout au contraire une faveur dont Allah vous a comblés en vous dirigeant vers la foi, si toutefois vous êtes véridiques." » [Sourate 49, v.17]
+    > « Ils te rappellent leur conversion à l'Islam comme si c'était une faveur de leur part. Dis : "Ne me rappelez pas votre conversion à l'Islam comme une faveur. C'est tout au contraire une faveur dont Allah vous a comblés en vous dirigeant vers la foi, si toutefois vous êtes véridiques." » [Sourate 49, v.17]
 
     > « Et n'eussent été la grâce d'Allah envers vous et Sa miséricorde, nul d'entre vous n'aurait jamais été pur. Mais Allah purifie qui Il veut. Et Allah est Audient et Omniscient. » [Sourate 24, v.21]
 

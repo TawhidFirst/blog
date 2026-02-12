@@ -19,7 +19,7 @@ sans être accompagnée d'une quelconque attribution des spécificités d'Allah,
 considérée comme du Tawassoul innové et interdit. Après une recherche approfondie, j'ai
 trouvé cette parole chez certains gens de science qui l'affirment également. Il y a 
 aussi des gens de science qui jugent cela comme étant du Shirk majeur qui fait sortir
-de l'islam. J'espère un éclaircissement sur ce point, qu'Allah inscrive votre récompense. 
+de l'Islam. J'espère un éclaircissement sur ce point, qu'Allah inscrive votre récompense. 
 La divergence repose-t-elle sur la question : est-ce que les morts peuvent entendre les 
 vivants ou non ?
 
@@ -29,7 +29,7 @@ Qu'Allah soit bienveillant envers vous et qu'Il vous rende profitable.
 
 Effectivement comme tu l’as évoqué, il y a une divergence entre les gens de science sur
 cette question : la demande d'invocation à un mort. Ce qui apparaît, c'est que cela est du
-Shirk majeur qui fait sortir de l'islam. Nous cherchons le refuge auprès d'Allah. En
+Shirk majeur qui fait sortir de l'Islam. Nous cherchons le refuge auprès d'Allah. En
 effet, il ne lui a pas demandé sans qu'il ait la conviction qu'il puisse répondre, qu'il
 détient la capacité de répondre à son souhait. Sinon, ceci est de la stupidité et de
 l'outrepassement.

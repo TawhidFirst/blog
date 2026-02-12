@@ -8,7 +8,7 @@ categories:
 - Fawaïd
 ---
 
-Le Tawhid et la prière constituent la base de l'islam et de l'acceptation des œuvres,
+Le Tawhid et la prière constituent la base de l'Islam et de l'acceptation des œuvres,
 Allah a dit (dans le sens approché de Sa parole) :
 
 « Ce qui empêche leurs dons d'être agréés, c'est le fait qu'ils n'ont pas cru en Allah et
@@ -21,6 +21,6 @@ prière, si elle est correcte, alors il prospérera et réussira. Si elle est in
 il aura failli et échoué. » [Rapporté par Thirmidhi, qu'il a rendu bon]
 
 Le hadith précédent d'Abi Hourayra, qu'Allah l'agréé, indique que la validité de la prière
-implique l'acceptation de toutes les œuvres, y compris les autres piliers de l'islam.
+implique l'acceptation de toutes les œuvres, y compris les autres piliers de l'Islam.
 
 Source : Twitter de Cheikh Hamad Al 'Othman, qu'Allah le préserve (@Hamad_Al_Othman)

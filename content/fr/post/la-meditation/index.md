@@ -4,7 +4,7 @@ description: Clef de tout bien et source de toute vertu
 image: image.jpg
 date: 2026-02-10
 tags:
-- Florilège des enseignements de l'islam
+- Florilège des enseignements de l'Islam
 categories:
 - Articles
 draft: false

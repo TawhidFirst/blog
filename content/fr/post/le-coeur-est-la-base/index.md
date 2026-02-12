@@ -573,11 +573,11 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     dernières. Le croyant et l'hypocrite ne se distinguent-ils pas par
     ce que contiennent leurs cœurs comme actions, lesquelles les
     caractérisent tous deux ? N'est-ce pas que la personne qui veut
-    embrasser l'islam le fait par l'action de son coeur avant celui de
+    embrasser l'Islam le fait par l'action de son coeur avant celui de
     ses membres. Les adorations du coeur son plus vastes que celles du
     corps, elles sont plus grandes et plus durables. Ainsi elles sont
     obligatoires à chaque instant, c'est pourquoi la foi est une
-    obligation constante pour le coeur, et l'islam est une obligation
+    obligation constante pour le coeur, et l'Islam est une obligation
     ponctuelle pour les membres."\[Bada'i Al Fawaïd (3/192-193)\]
 
 [^6]: Rapporté par Ahmad (13048) et authentifié par Al Albani dans

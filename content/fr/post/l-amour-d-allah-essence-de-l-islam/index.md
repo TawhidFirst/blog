@@ -4,7 +4,7 @@ description: Comment être aimé d'Allah ?
 image: image.jpg
 date: 2026-02-04
 tags:
-- Florilège des enseignements de l'islam
+- Florilège des enseignements de l'Islam
 categories:
 - Articles
 draft: false

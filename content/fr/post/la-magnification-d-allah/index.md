@@ -2,7 +2,7 @@
 title: La magnification d'Allah
 date: 2026-02-06
 tags:
-- Florilège des enseignements de l'islam
+- Florilège des enseignements de l'Islam
 categories:
 - Articles
 description: Fondement de la félicité et essence de l'adoration.
