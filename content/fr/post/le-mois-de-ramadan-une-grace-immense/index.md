@@ -26,7 +26,7 @@ Le mois béni de Ramadan est une grâce divine, une faveur du Seigneur accordée
 
 2) Le mois de Ramadan contient la Nuit du Destin, dont Allah a dit : "Et qui te dira ce qu'est la Nuit du Destin ? La Nuit du Destin est meilleure que mille mois" [Sourate 97, v.2-3]. Cela signifie que les actes accomplis pendant cette nuit valent mieux que mille mois qui ne contiennent pas cette nuit, de même que la récompense associée.
 
-3) Le jeûne de ce mois est une cause de pardon des péchés. Al Boukhary et Mouslim ont rapporté d'après Abou Hourayra, que le prophète a dit : "Celui qui jeûne le mois de Ramadan par foi et en espérant la récompense, ses péchés passés lui seront pardonnés"[⁴]. Par foi en Allah, en agréant l'obligation du jeûne, es espérant sa récompense et sa rétribution. Il ne déteste pas son obligation, il ne doute pas de sa récompense et sa rétribution, a savoir qu'Allah lui pardonne ses péchés passés. Dans l'authentique de Mouslim, d'après Abou Hourayra également, le prophète a dit : "Les cinq prières obligatoires, le vendredi jusqu’au suivant et le mois de Ramadan jusqu’à celui qui le suit sont des actions qui expient les péchés commis entre elles, tant que l'on évite les grands péchés."[⁵]
+3) Le jeûne de ce mois est une cause de pardon des péchés. Al Bukhari et Muslim ont rapporté d'après Abu Hurayra, que le prophète a dit : "Celui qui jeûne le mois de Ramadan par foi et en espérant la récompense, ses péchés passés lui seront pardonnés"[⁴]. Par foi en Allah, en agréant l'obligation du jeûne, es espérant sa récompense et sa rétribution. Il ne déteste pas son obligation, il ne doute pas de sa récompense et sa rétribution, a savoir qu'Allah lui pardonne ses péchés passés. Dans l'authentique de Muslim, d'après Abu Hurayra également, le prophète a dit : "Les cinq prières obligatoires, le vendredi jusqu’au suivant et le mois de Ramadan jusqu’à celui qui le suit sont des actions qui expient les péchés commis entre elles, tant que l'on évite les grands péchés."[⁵]
 
 4) En complément de ce qui a été mentionné précédemment, celui qui observe le jeûne de Ramadan par foi et en espérant la récompense, ses péchés passés lui seront pardonnés. De plus, durant ce mois, les démons sont enchaînés, les portes du paradis sont ouvertes et les portes de l'enfer sont fermées. Chaque nuit de ce mois, Allah affranchit des croyants du feu.
 
@@ -36,7 +36,8 @@ Le mois béni de Ramadan est une grâce divine, une faveur du Seigneur accordée
 
 Ô Allah, guide-nous dans Ton obéissance, aide-nous à Te mentionner, à Te remercier et à parfaire Ton adoration. Facilite-nous les causes du bien. Complète sur nous la grâce d'honorer comme il se doit ce noble invité. Aide-nous en ce mois à jeûner, à prier, et à avoir un bon comportent, ô Seigneur des univers.
 
-Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [¹]: Tariq Al Hijratayn d'Ibn Al Qayyim (p.175)
 
@@ -44,6 +45,6 @@ Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
 
 [³]: Musnad d'Ahmad (4/107, n°16921), Al Tabarani (17646), les termes sont ceux d'Ahmad
 
-[⁴]: Rapporté dans les deux authentiques Al Boukhari (2014), Mouslim (760)
+[⁴]: Rapporté dans les deux authentiques Al Bukhari (2014), Muslim (760)
 
-[⁵]: Mouslim (233)
+[⁵]: Muslim (233)

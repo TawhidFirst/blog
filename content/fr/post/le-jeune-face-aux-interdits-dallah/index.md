@@ -11,7 +11,7 @@ categories: Articles
 
 Parmi les impératifs les plus prégnants, il y a la nécessité pour les jeûneurs de préserver scrupuleusement leur jeûne, en veillant à le soustraire à tout élément susceptible d'en diminuer la valeur ou d'en compromettre la rétribution.
 
-Mouslim rapporte dans son authentique que le prophète a dit : "Certes, le véritable ruiné de ma communauté viendra le Jour du Jugement avec des prières, des jeûnes et des aumônes, mais il aura aussi insulté celui-ci, calomnié celui-là, usurpé les biens de celui-ci, versé le sang de celui-là et battu celui-ci. Alors, on lui donnera de leurs bonnes actions, mais si ses bonnes actions sont épuisées avant que ses dettes ne soient acquittées, on prendra de leurs péchés et on les lui imputera, puis il sera jeté en Enfer."[^1]
+Muslim rapporte dans son authentique que le prophète a dit : "Certes, le véritable ruiné de ma communauté viendra le Jour du Jugement avec des prières, des jeûnes et des aumônes, mais il aura aussi insulté celui-ci, calomnié celui-là, usurpé les biens de celui-ci, versé le sang de celui-là et battu celui-ci. Alors, on lui donnera de leurs bonnes actions, mais si ses bonnes actions sont épuisées avant que ses dettes ne soient acquittées, on prendra de leurs péchés et on les lui imputera, puis il sera jeté en Enfer."[^1]
 
 Ainsi, bien que ce serviteur accomplisse la prière, le jeûne et l'aumône, il perd leur récompense et anéantit leur rétribution, à cause des injustices et des agressions de ses membres, des insultes et des calomnies de sa langue. C'est ainsi qu'il fait partie des ruinés.
 
@@ -29,7 +29,7 @@ De même, pour les parties intimes, son utilisation a été prescrite pour le li
 
 Certes, Allah a promis une récompense abondante, une grande rétribution et de multiple biens dans ce bas-monde et dans l'au-delà pour celui qui utilisent ces bienfaits dans ce qu'Il agrée. En revanche, Il a menacé ceux qui ne les préservent pas et ne prennent pas en compte la sagesse de leur création, les utilisant dans ce qui cause Son courroux et Sa colère, suscitant ainsi Son châtiment et Sa punition. Allah a informé que ces membres seront questionnés au Jour de la Résurrection, et que leur détenteur sera également interrogé sur ces membres. Allah a dit (dans le sens approché) : "Et ne poursuis pas ce dont tu n'as aucune connaissance. L'ouïe, la vue et le cœur : sur tout cela fera l'objet de questions." [Sourate 17, v.36]. Et Il a dit également (dans le sens approché) : "Ce jour-là, Nous scellerons leur bouche, et leurs mains nous parleront et leurs pieds rendront témoignage de ce qu'ils avaient accompli." [Sourate 36, v.65]. Et Allah a dit aussi (dans une traduction des sens) : "Et le jour où les ennemis d'Allah seront rassemblés vers le Feu, et ils y seront arrêtés. Jusqu'à ce qu'ils y arrivent, leurs oreilles, leurs yeux et leurs peaux témoigneront contre eux de ce qu'ils faisaient. Ils diront à leurs peaux : 'Pourquoi avez-vous témoigné contre nous ?'. Elles diront : 'C'est Allah qui nous a fait parler, Lui qui fait parler toute chose. Et c'est Lui qui vous a créés une première fois et c'est vers Lui que vous retournerez'." [Sourate 41, v.19-21].
 
-Il est rapporté que le prophète a recommandé à Mou'adh Ibn Jabal de préserver sa langue. Mou'adh lui demanda : "Ô messager d'Allah, sommes-nous jugés pour ce que nous disons ?" Le prophète répondit : "Que ta mère te perde (formule de réprobation), ô Mou'adh. Les gens seront-ils jetés en Enfer sur leur visage ou sur leurs narines autrement que par les fruits de leurs langues ?!"[^2]. Il a également dit : "Celui qui garantit pour moi ce qui est entre ses mâchoires (langue) et ce qui est entre ses jambes (sexe), je lui garantis le paradis"[^3]. Al Tirmidhi a rapporté tout en le jugeant bon, le hadith de Abou Hourayra dont les termes sont :"Celui qu’Allah a préservé du mal de ce qu’il y a entre ses deux mâchoires et du mal de ce qu’il y a entre ses deux jambes, entrera au paradis."[^4]. Dans les deux authentiques d'après Abou Hourayra, le prophète a dit : "Celui qui croit en Allah et au Jour Dernier, qu'il dise du bien ou qu'il se taise"[⁵]. De même, dans les deux authentiques selon Abou Moussa Al Ash'ari : "Ils dirent , ô messager d'Allah, quel est le meilleur Islam ?" Le prophète a répondu : "Ceux dont les musulmans sont à l'abri de leur langue et de leur main"[^6].
+Il est rapporté que le prophète a recommandé à Mou'adh Ibn Jabal de préserver sa langue. Mou'adh lui demanda : "Ô messager d'Allah, sommes-nous jugés pour ce que nous disons ?" Le prophète répondit : "Que ta mère te perde (formule de réprobation), ô Mou'adh. Les gens seront-ils jetés en Enfer sur leur visage ou sur leurs narines autrement que par les fruits de leurs langues ?!"[^2]. Il a également dit : "Celui qui garantit pour moi ce qui est entre ses mâchoires (langue) et ce qui est entre ses jambes (sexe), je lui garantis le paradis"[^3]. Al Tirmidhi a rapporté tout en le jugeant bon, le hadith de Abu Hurayra dont les termes sont :"Celui qu’Allah a préservé du mal de ce qu’il y a entre ses deux mâchoires et du mal de ce qu’il y a entre ses deux jambes, entrera au paradis."[^4]. Dans les deux authentiques d'après Abu Hurayra, le prophète a dit : "Celui qui croit en Allah et au Jour Dernier, qu'il dise du bien ou qu'il se taise"[⁵]. De même, dans les deux authentiques selon Abu Moussa Al Ash'ari : "Ils dirent , ô messager d'Allah, quel est le meilleur Islam ?" Le prophète a répondu : "Ceux dont les musulmans sont à l'abri de leur langue et de leur main"[^6].
 
 Ainsi, ces textes et d'autres qui portent le même sens indiquent clairement que le serviteur doit préserver sa langue, ses parties intimes, son ouïe, sa vue, ses mains et ses pieds de l'illicite. Cela constitue un jeûne dans son sens linguistique, et ce jeûne ne se limite pas à un moment particulier, mais il doit être observé en permanence jusqu'à la mort, par obéissance à Allah, afin de gagner Son agrément et Sa récompense, d'être préservé de Son courroux et de Sa punition. Ainsi, lorsque le musulman réalise qu'il s'abstient pendant le mois de jeûne de ce qu'Allah lui a permis parce qu'Il lui a interdit cela pendant les jours du mois de Ramadan, qu'il réalise également qu'Allah lui a interdit l'illicite pour toute sa vie et tout au long de son existence. Il doit donc s'en abstenir en permanence, craignant le châtiment d'Allah préparé pour celui qui désobéit à Son ordre et commet ce qu'Il a interdit.
 
@@ -39,18 +39,19 @@ La première chose qu'il rencontrera de cela sera ce que le messager d'Allah a e
 
 Ceci est la récompense des jeûneurs qui s'abstiennent de ce qu'Allah a interdit, qui L'obéissent assidûment, qui préservent Ses commandements et évitent Ses interdictions. Qu'Allah nous compte parmi eux et nous guide sur leur voie.
 
-Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
-[^1]: Mouslim (2581)
+[^1]: Muslim (2581)
 
 [^2]: Rapporté par Al Tirmidhi (2616), Ibn Majah (3973), les termes sont ceux de Tirmidhi
 
-[^3]: Rapporté par Al Boukhary (6474)
+[^3]: Rapporté par Al Bukhari (6474)
 
 [^4]: Sounan Al Tirmidhi (2409)
 
-[^5]: Rapporté dans les deux authentiques, Al Boukhary (6135), Mouslim (47)
+[^5]: Rapporté dans les deux authentiques, Al Bukhari (6135), Muslim (47)
 
-[^6]: Rapporté dans les deux authentiques, Al Boukhary (11), Mouslim (42)
+[^6]: Rapporté dans les deux authentiques, Al Bukhari (11), Muslim (42)
 
 [^7]: Rapporté par l'Imam Ahmad dans son Mousnad (18534)

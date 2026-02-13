@@ -13,7 +13,7 @@ categories:
 {{< youtube id="iCpRKnSnCj8" autoplay="true" >}}
 
 ## Introduction
-Je demande l’aide exclusive à Allah, recherchant la bénédiction par tous ses Noms, Al-Rahman, Al-Rahim. Toutes les louanges reviennent de droit à Allah, Seigneur des univers. J’atteste que nulle divinité ne mérite l’adoration excepté Allah, seul sans aucun associé. J’atteste que Mohammed est Son serviteur et messager, que les éloges d’Allah et la paix soient sur lui, ainsi que sur les membres croyants de sa famille et sur l’ensemble de ses compagnons. Ceci dit, je demande à Allah par Ses sublimes noms et Ses éminents attributs qu’Il nous bénisse tous dans ce rassemblement, et en cette nuit, en ce mois. Qu’Il nous enrichisse par les grands biens qu’il renferme et ses multiples bénédictions. Qu’Il fasse de ce mois un mois de fierté pour la communauté islamique, celle de Mohammed. 
+Je demande l’aide exclusive à Allah, recherchant la bénédiction par tous ses Noms, Al Rahman, Al Rahim. Toutes les louanges reviennent de droit à Allah, Seigneur des univers. J’atteste que nulle divinité ne mérite l’adoration excepté Allah, seul sans aucun associé. J’atteste que Mohammed est Son serviteur et messager, que les éloges d’Allah et la paix soient sur lui, ainsi que sur les membres croyants de sa famille et sur l’ensemble de ses compagnons. Ceci dit, je demande à Allah par Ses sublimes noms et Ses éminents attributs qu’Il nous bénisse tous dans ce rassemblement, et en cette nuit, en ce mois. Qu’Il nous enrichisse par les grands biens qu’il renferme et ses multiples bénédictions. Qu’Il fasse de ce mois un mois de fierté pour la communauté islamique, celle de Mohammed. 
 
 Ô noble assemblé de biens aimés, le sujet de cette allocution a trait aux spécificités du mois de Ramadan. Il est bon d’écouter quelque spécifiés du Ramadan, d’autant plus que nous nous trouvons à l’entrer et au début de ce mois. Pour qu’ainsi, notre rappel de ces spécificités nous aide à accroître l’attention, le soin et la sollicitude qu’on porte à cette immense période. Ce qui nous permettra de s’enrichir de ses biens, que l’on soit touché par ses bénédictions. Pour que l’on fasse parti des gagnants et des victorieux de ce mois. Pour que se complète sur nous les bienfaits et que nous soyons alors parmi les reconnaissants. 
 
@@ -47,7 +47,7 @@ Parmi les spécificités du Ramadan, est qu’il est le mois du Coran, c’est d
 
 « (Ces jours sont) le mois du Ramadan au cours duquel le Coran a été descendu comme guide pour les gens, et preuves claires de la bonne direction et du discernement. » [Sourate 2, v.185]
 
-« Nous l'avons certes, fait descendre (le Coran) pendant la nuit d'Al-Qadr. Et qui te dira ce qu'est la nuit d'Al-Qadr ? La nuit d'Al-Qadr est meilleure que mille mois. » [Sourate 97, v.1-3]
+« Nous l'avons certes, fait descendre (le Coran) pendant la nuit d'Al Qadr. Et qui te dira ce qu'est la nuit d'Al Qadr ? La nuit d'Al Qadr est meilleure que mille mois. » [Sourate 97, v.1-3]
 
 La nuit du destin est l’une des nuits du Ramadan, la plus prestigieuse de ses nuits, c’est même la plus prestigieuse de toutes les nuits de l’année. Allah a distingué le Ramadan par la révélation du Coran en ce mois. Ainsi le Ramadan à un lien étroit avec le Coran. Djibril venait à notre noble prophète durant le Ramadan, il lui enseignait le Coran. Donc le Ramadan a un rapport particulier avec le Livre d’Allah. Celui qui lit les biographies des Salafs, des compagnons et de ceux qui les ont suivis avec bienfaisance verra la grande place du Coran durant le mois du Ramadan. Quand ce mois débutait, un Salaf disait : « C’est un mois de don en nourriture et de lecture du Coran ». Ils s’orientaient davantage encore vers le Coran, sachant qu’ils s’y consacraient déjà en dehors de ce mois. Mais dans le Ramadan, il y a une chose particulière avec le Livre d’Allah. Si la personne n’a aucune part avec le Coran durant le Ramadan, alors c’est un manquement, un défaut. Elle doit alors faire une rétrospection, qu’elle médite sur ses sources de lacunes qui l’ont écartée du Coran dans sa plus grande période, dans ses temps les plus éminents, dans le mois qui a vu sa révélation. Le bon conseiller envers sa propre personne, se doit de prendre conscience, de la place et de la particularité que le Coran, cet immense livre, a pendant le Ramadan. Si le Coran fut descendu pendant le Ramadan, comme guide pour les gens, et preuves claires de la bonne direction et du discernement, alors le Ramadan est une occasion pour obtenir cette guidance, pour connaître ces preuves claires et ces orientations, celles de ce grand Livre :
 
@@ -55,14 +55,14 @@ La nuit du destin est l’une des nuits du Ramadan, la plus prestigieuse de ses 
 
 La personne se conseille donc, de méditer ce Livre grandiose, de réfléchir sur ces sens, ses grandes orientations bénies. Pour qu’il trouve par les exhortations du Coran, un réveille à son cœur, une purification de son âme, un raffermissement dans la droiture, une aide dans son cheminement vers son Seigneur et la quête de Son agrément.
 
-## Hadith Abou Hourayra
-Parmi les spécificités du Ramadan, ce qu’il fut rapporté dans l’authentique d’Al Boukhary, et Mouslim, selon le hadith de Abou Hourayra où le prophète a dit :
+## Hadith Abu Hurayra
+Parmi les spécificités du Ramadan, ce qu’il fut rapporté dans l’authentique d’Al Bukhari, et Muslim, selon le hadith de Abu Hurayra où le prophète a dit :
 
 « Quand le Ramadan débute, les portes du paradis sont ouvertes, les portes de l’enfer sont fermées et les diables sont enchaînés. »
 
 Il a dit « quand le Ramadan débute », ce qui montre que c’est l’une de ses spécificités. Ce sont des spécificités remarquables qu’Allah a placé dans ce grand mois. Ainsi, les portes du paradis s’ouvrent, aucune de ses portes n’est fermé. Les portes de l’enfer sont fermées et aucune de ses portes ne reste ouverte. Les diables sont enchaînés, ils ne peuvent alors s’adonner à leurs égarements, à empêcher le rappel d’Allah, comme c’est le cas en dehors du Ramadan. C’est trois points cités dans le hadith sont également des moyens qui permettent au serviteur de tiré profit durant ce mois, de l’approvisionnement de la piété, puisque ces bienfaits sont des spécificités du Ramadan. C’est une occasion précieuse, propice, grandiose, qui ne peut être perdue, car sa perte est totale privation, une perdition complète. Donc les portes du paradis sont ouvertes, le serviteur multiplie alors les œuvres par lesquels il obtient les hauts degrés dans les jardins du délice. Les portes de l’enfer sont fermées, il s’efforce alors de s’approvisionner par la piété afin de ne pas être parmi ceux qui entreront en enfer par n’importe laquelle de ses portes. Les diables sont enchaînés, il en profite alors pour en tirer un approvisionnement qui lui permettra de repousser shaytan, et trouver le salut face à sa ruse, pas seulement pendant le Ramadan, mais également dans les autres mois.
 
-Il est rapporté dans Al Jami’ de Al Tirmidhi, selon Abou Hourayra, que le prophète a dit : 
+Il est rapporté dans Al Jami’ de Al Tirmidhi, selon Abu Hurayra, que le prophète a dit : 
 
 « Dès la première nuit du Ramadan, les diables sont enchaînés ainsi que leurs chefs. Les portes de l’enfer sont fermées, et aucune de ses portes ne reste ouverte. Les portes du paradis s’ouvrent, aucune de ses portes n’est fermé. Un héraut appelle chaque nuit : ‘Ô celui qui veut le bien, accours, et ô celui qui désire le mal, retiens-toi’. Allah affranchit des gens de l’enfer, et ceci a lieu chaque nuit. »
 
@@ -77,7 +77,7 @@ Parmi les spécificités du Ramadan, est qu’il est un mois béni. C’est par 
 
 Le prophète a ainsi qualifié le mois du Ramadan comme étant un mois béni. Cette bénédiction qui est dans le Ramadan, est une bénédiction générale. Une bénédiction dans le temps, une bénédiction dans les actes, une bénédiction dans la récompense aux actes. En effet, en ce mois, les rétributions sont multipliées. Une bénédiction dans les diverses spécificités qu’a ce mois, l’ouverture des portes du paradis dans ce mois, est l’une des bénédictions du Ramadan. La fermeture des portes de l’enfer est l’une des bénédictions qu’Allah a placées dans ce mois. L’enchaînement des diables dans ce mois est également l’une des bénédictions qu’Allah a mise dans ce mois. Une seule nuit présente dans le mois du Ramadan, est meilleure encore que mille mois, c’est l’une des bénédictions présentes dans ce mois. La multiplication de la rétribution et de la récompense, c’est une des bénédictions de ce mois : 
 
-« Le jeûne est pour Moi et c'est Moi qui le récompense. » [Hadith Abou Hourayra, Sahih Al Boukhary et Mouslim]. 
+« Le jeûne est pour Moi et c'est Moi qui le récompense. » [Hadith Abu Hurayra, Sahih Al Bukhari et Muslim]. 
 
 Cela compte parmi les bénédictions. Ainsi, les bénédictions du Ramadan sont générales, variées, immenses et majestueuses. Si le Ramadan est un mois béni, il revient à toute personne qui a atteint ce mois, de fournir des efforts pour obtenir ses bénédictions, qu’elle en acquière une large et abondante part. C’est pourquoi, le Ramadan est à l’image d’une grande piste de course, dans le but d’obtenir la piété et les bénédictions immenses et variées du Ramadan. Le prophète a dit : 
 
@@ -115,7 +115,7 @@ Il a également dit :
 
 « Celui qui prie (les prières nocturnes -Tarawih-), avec foi et en espérant (la récompense d’Allah), verra ses péchés passés pardonnés. » [Rapporté dans les deux authentiques] 
 
-Il est cité dans l’authentique de Mouslim, que le prophète a dit : 
+Il est cité dans l’authentique de Muslim, que le prophète a dit : 
 
 « Les cinq prières, le vendredi jusqu’au suivant et le Ramadan jusqu’au prochain, expient ce qui est commis entre eux, si les grands péchés sont évités ». 
 

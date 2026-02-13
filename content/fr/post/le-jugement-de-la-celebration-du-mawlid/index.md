@@ -43,7 +43,7 @@ L’amour n’est pas que l’individu s’adonne à des pratiques qui ne sont p
 
 Et dans un autre hadith :
 
-« Je n’aime pas que vous m’éleviez au-dessus du rang qu’Allah m’a donné. Je suis uniquement un serviteur d’Allah et Son messager. » [Rapporté par Ahmed et An-Nassai]
+« Je n’aime pas que vous m’éleviez au-dessus du rang qu’Allah m’a donné. Je suis uniquement un serviteur d’Allah et Son messager. » [Rapporté par Ahmad et Al Nassaï]
 
 Les célébrations se fondent sur la récitation de poèmes contenant de l’exagération et de l’excès dans ses louanges, l’élevant à un degré supérieur au sien. Les poèmes reposent sur les éloges à outrance du noble prophète. Ils considèrent même que la célébration de la naissance du prophète n’est pas complète tant que ce genre de poèmes ne sont pas récités. De plus, dans de nombreuses célébrations de la naissance du prophète on tape du tambour, danse et d’autres choses encore. Hier un noble frère m’a informé qu’il a vu dans certains endroits, durant ces mêmes jours, dans les mosquées ils jouent du tambour, dansent et prétendent que ce sont des manifestations de la naissance du prophète.
 

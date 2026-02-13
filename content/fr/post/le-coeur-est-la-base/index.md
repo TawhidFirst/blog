@@ -30,7 +30,7 @@ cœurs, car de la rectitude ou de la corruption du cœur dépend celle des
 membres.
 
 Cheikh Al Islam Ibn Taymiyyah a dit : "En substance : le cœur est le
-fondement, comme l’a dit Abou Hourayra, qu'Allah l'agrée : 'Le cœur est
+fondement, comme l’a dit Abu Hurayra, qu'Allah l'agrée : 'Le cœur est
 le roi des membres, et ceux-ci sont ses soldats. Si le roi est bon,
 alors ses soldats le seront également. Mais s’il est corrompu, ses
 soldats le seront aussi'. Ce qui est en adéquation avec le hadith de
@@ -96,7 +96,7 @@ Ainsi, la connaissance des règles relatives aux cœurs est plus
 importante que celle des membres du corps, car elles en sont la base à
 partir de laquelle se ramifient les règles liées aux actions physiques.
 C’est également sur cela que se pose le regard du Seigneur, comme cela
-est rapporté par Muslim dans son Sahih, d'après Abou Hourayra, qui a dit
+est rapporté par Muslim dans son Sahih, d'après Abu Hurayra, qui a dit
 :
 
 > Le Messager d'Allah ﷺ a dit : "Certes, Allah ne regarde pas vos corps
@@ -104,7 +104,7 @@ est rapporté par Muslim dans son Sahih, d'après Abou Hourayra, qui a dit
 
 Puis il pointa son doigt vers sa poitrine.
 
-Muslim et Ahmad rapportent, selon Abou Hourayra, que le Prophète ﷺ a dit
+Muslim et Ahmad rapportent, selon Abu Hurayra, que le Prophète ﷺ a dit
 :
 
 > La crainte pieuse \[Taqwa\] est ici, et il pointa son doigt vers sa
@@ -340,7 +340,7 @@ Je demande à Allah qu'Il nous accorde la réussite dans tout bien, qu'Il
 réforme l'ensemble de nos états. Il est certes Celui qui entend, qui est
 proche et qui exauce.
 
-Traduction: Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: Rapporté par Al Bukhari (52) et Muslim (1599).
 
@@ -444,7 +444,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     cœur après avoir évoqué le licite et l’illicite." \[cf. Cours 10\]
 
     Il est rapporté que Nu'man Ibn Bashir, qu'Allah les agrée,
-    a transmis cent quatorze hadiths \[cf. Siyar A'lam Al-Nubala
+    a transmis cent quatorze hadiths \[cf. Siyar A'lam Al Nubala
     (3/411)\]. Dans d'autres cours, Cheikh 'Abd Al Razzaq Al Badr,
     qu'Allah le préserve, a souligné l'importance d'éduquer les enfants
     à la science, à la Sunnah, et à l'amour des hadiths du Prophète ﷺ.
@@ -470,10 +470,10 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     cœur. Si le cœur est la base, que sont les membres du corps ? Ils le
     suivent dans son état, qu'il s'agisse d'intégrité ou de perversion.
     Dans d'autres écrits, Cheikh Al Islam a stipulé que la parole du
-    Prophète ﷺ est plus complète que celle d’Ibn Massoud. En effet, si
+    Prophète ﷺ est plus complète que celle d’Ibn Mas'ud. En effet, si
     le cœur est réformé, les membres le seront obligatoirement, et s'il
     est corrompu, les membres le seront forcément. C'est un suivi du
-    cœur complet. Tandis que l'image donnée par Abou Hourayra vise à
+    cœur complet. Tandis que l'image donnée par Abu Hurayra vise à
     faciliter la compréhension de ce sens. Mais la parole du Prophète ﷺ
     est plus achevée, car le roi peut être intègre alors que certains de
     ses soldats peuvent être corrompus, ou bien il peut être à son tour
@@ -548,7 +548,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     exemple, par ostentation ou par intérêt. Allah regarde donc d'abord
     les cœurs et en examine la rectitude, la pureté et la droiture, ou,
     lorsqu'il est corrompu, les déviations et les dérives qui en
-    découlent. Dans le hadith rapporté par Abou Hurayra, le Prophète ﷺ a
+    découlent. Dans le hadith rapporté par Abu Hurayra, le Prophète ﷺ a
     dit : "La crainte pieuse \[Taqwa\] est ici", et il pointa trois fois
     son doigt vers sa poitrine. Cela signifie que sa source, sa base et
     son fondement résident dans le cœur. Comme Allah l’a dit (dans le
@@ -616,7 +616,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
 [^10]: Jami' Al 'Ulum Wal Hikam (1/220).
 
-[^11]: Rapporté par Abou Daoud (4681) et authentifié par Al Albani.
+[^11]: Rapporté par Abu Dawud (4681) et authentifié par Al Albani.
 
 [^12]: \[C\] Comme nous l'avons vu précédemment dans le hadith de Nu'man
     : "Celui qui se prémunit contre ces ambiguïtés préserve sa religion
@@ -636,7 +636,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     tel est le cas des cœurs, qui sont sujets à des facteurs et des
     maladies qui les affaiblissent et font diminuer la foi, il revient
     au serviteur de travailler pour soigner son cœur \[cf. parole de
-    Hassan Al-Basri\]. Si tu sens que ton cœur contient une maladie,
+    Hassan Al Basri\]. Si tu sens que ton cœur contient une maladie,
     alors agis pour qu'elle en sorte et pour être épargné de son mal et
     de ses nuisances, par l'invocation et en combattant le Nafs. Si le
     corps apparent peut être touché par la maladie, la personne fournit
@@ -661,7 +661,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     péché." \[Rapporté par Al Tirmidhi et authentifié par Cheikh Al
     Albani dans Sahih Al Jami' (7731)\].
 
-    Dans le hadith de Abu Hourayra, qu'Allah l'agrée, il a été
+    Dans le hadith de Abu Hurayra, qu'Allah l'agrée, il a été
     cité la tristesse (Al Housn), l'angoisse (Al Gham) et le souci (Al
     Ham). Ces trois états sont respectivement liés aux événements
     passés, présents et futurs. \[Cf. Explication de Tajrid Al Sarih Li
@@ -742,7 +742,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
 
 [^17]: Ighathatou Al Lahfan (1/10-12).
 
-[^18]: Rapporté par Al Bukhary en commentaire dans le chapitre intitulé
+[^18]: Rapporté par Al Bukhari en commentaire dans le chapitre intitulé
     : "L'espoir et persistance". Ibn Hajar l'a relaté dans Taghliq Al
     Ta'liq (5/158).
 
@@ -823,7 +823,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     d'Adam atteint le matin, tous les membres implorent la langue. Ils
     disent : 'Crains Allah en ce qui nous concerne, car nous ne faisons
     que te suivre. Si tu es droit, nous serons droits ; mais si tu
-    dévies, alors nous dévions'." \[Rapporté par Al-Tirmidhi (2407),
+    dévies, alors nous dévions'." \[Rapporté par Al Tirmidhi (2407),
     rendu bon par Cheikh Al Albani dans son Tahqiq\].
 
     C'est pour cette raison qu'il a été dit dans le passé : "L'homme est

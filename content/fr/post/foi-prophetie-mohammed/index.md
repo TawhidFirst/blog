@@ -91,4 +91,4 @@ Fait partie de la foi en lui de le soutenir, de le vénérer et de le secourir. 
 Le soutenir, c'est lui porter secours. Le vénérer, c'est le respecter et le magnifier ﷺ. La réalité de cela est de le prendre pour modèle, de s'attacher à sa guidée et de demeurer fidèle à sa biographie éminente ﷺ. C'est aussi s'attacher à ce sur quoi étaient les Compagnons vertueux parmi les Émigrés et les Auxiliaires, ainsi que ceux qui les ont suivis avec excellence. C'est enfin croire qu'il est la balance suprême sur laquelle les choses sont jugées, au regard de son caractère, de sa biographie et de sa guidée. Ce qui y est conforme est la vérité, ce qui y contrevient est le faux.
 
 **Écrit par** : Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq

@@ -14,13 +14,13 @@ Parmi les stations grandioses de la religion islamique, parmi ses demeures élev
 
 Quelle station grandiose, quelle demeure majestueuse, quel rang prestigieux que celui où la créature connaît son Créateur, son Seigneur, son Maître, Celui qui lui a donné l'existence et son Protecteur ! Elle découvre alors Sa grandeur, Sa majesté, Sa beauté et Sa superbe. Elle apprend à connaître Ses Noms sublimes et Ses Attributs élevés.
 
-Nul doute que cette connaissance constitue la plus noble des sciences religieuses, le plus pur des objectifs élevés et la plus grande des nobles finalités. Sa valeur est intrinsèquement liée à l'excellence de son Sujet : Allah le Très-Haut. Le connaître, exalté soit-Il, savoir Ses Noms, Ses Attributs et Ses actes représente la plus illustre de toutes les sciences de la religion. Rechercher Sa Face est le plus noble des desseins. L'adorer est la plus honorable des œuvres. Le louer par Ses Noms et Attributs, Le glorifier et L'exalter constitue la plus noble des paroles. Tel est le fondement de la Hanifiyya, la voie d'Ibrahim, et telle est la religion commune de tous les prophètes. Sur elle, leur parole s'est accordée, leurs propos se sont rejoints, leurs conseils et clarifications se sont succédé. C'est même l'un des axes majeurs sur lesquels repose leur appel, du premier d'entre eux jusqu'à leur sceau, Mohammad, que le salut soit sur eux.
+Nul doute que cette connaissance constitue la plus noble des sciences religieuses, le plus pur des objectifs élevés et la plus grande des nobles finalités. Sa valeur est intrinsèquement liée à l'excellence de son Sujet : Allah le Très-Haut. Le connaître, exalté soit-Il, savoir Ses Noms, Ses Attributs et Ses actes représente la plus illustre de toutes les sciences de la religion. Rechercher Sa Face est le plus noble des desseins. L'adorer est la plus honorable des œuvres. Le louer par Ses Noms et Attributs, Le glorifier et L'exalter constitue la plus noble des paroles. Tel est le fondement de la Hanifiyya, la voie d'Ibrahim, et telle est la religion commune de tous les prophètes. Sur elle, leur parole s'est accordée, leurs propos se sont rejoints, leurs conseils et clarifications se sont succédé. C'est même l'un des axes majeurs sur lesquels repose leur appel, du premier d'entre eux jusqu'à leur sceau, Mohammed, que le salut soit sur eux.
 
 À ce sujet, l'érudit Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit :
 
 > La prédication des messagers s'articule autour de trois fondements. Le premier : faire connaître le Seigneur vers lequel on appelle par Ses Noms, Ses Attributs et Ses actes. Le deuxième : faire connaître la voie qui mène à Lui, à savoir Son évocation, Son remerciement et Son adoration, laquelle réunit l'amour parfait et l'humilité totale à Son égard. Le troisième : leur faire connaître ce qui leur revient après être parvenus à Lui dans la demeure de Son honneur. Là se trouvent des délices dont les plus éminents et les plus nobles sont Son agrément envers eux, Sa manifestation à eux, leur vision de Sa Face suprême, Son salut sur eux et le fait qu'Il leur parle. [^1]
 
-Notre Prophète Mohammad ﷺ a reçu de cela la part la plus complète :
+Notre Prophète Mohammed ﷺ a reçu de cela la part la plus complète :
 
 > Il a fait connaître aux gens leur Seigneur et leur Adoré au maximum de ce que leurs facultés peuvent atteindre comme connaissance. Il a répété et réitéré, tantôt en abrégeant, tantôt en s'étendant sur Ses Noms, Ses Attributs et Ses actes, jusqu'à ce que Sa connaissance, exalté soit-Il, resplendisse dans les cœurs de Ses serviteurs croyants. Les nuées du doute et de l'incertitude s'en dissipèrent comme se retirent les nuages devant la pleine lune. Il n'a laissé à sa communauté aucun besoin dans cette connaissance, ni des prédécesseurs, ni des successeurs. Il leur a suffi, les a guéris et les a dispensés de quiconque pour aborder ce sujet : « Ne leur suffit-il pas que Nous ayons fait descendre sur toi le Livre qui leur est récité ? Il y a certes là une miséricorde et un rappel pour des gens qui croient. » [Sourate 29, v.51] [^2]
 
@@ -82,8 +82,8 @@ Il sort de la vie sans avoir goûté ce qu'elle a de plus savoureux, et quitte c
 
 Car le plaisir parfait, la joie, l'allégresse, la douceur de vivre et le délice ne se trouvent que dans la connaissance d'Allah et Son Tawhid, Sa proximité et le désir de Sa rencontre. La vie la plus amère est celle d'un cœur dispersé et d'un esprit déchiré qui n'a ni intention droite à poursuivre ni chemin clair à emprunter. Les routes se sont ramifiées devant lui, les voies se sont multipliées. Sur chaque chemin il y a un trébuchement, sur chaque voie un faux pas. Perplexe, il erre sur terre sans trouver de chemin. Quand bien même il parcourrait tous ces sentiers, son cœur ne trouverait pas de repos, ne s'apaiserait pas, ne serait pas serein et son œil ne se réjouirait pas, jusqu'à ce qu'il trouve la quiétude auprès de sa Divinité, son Seigneur, son Maître et son Protecteur, Celui en dehors de qui il n'a ni allié ni intercesseur, et dont il ne peut se passer le temps d'un clin d'œil.
 
-**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: Al Sawa'iq Al Mursala (4/1489).
 

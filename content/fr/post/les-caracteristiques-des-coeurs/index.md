@@ -14,7 +14,7 @@ categories:
 
 # Les caractéristiques des cœurs
 
-Ibn Majah rapporte, d'après Al-Nawwas ibn Sam'an, qu'Allah l'agrée :
+Ibn Majah rapporte, d'après Al Nawwas ibn Sam'an, qu'Allah l'agrée :
 
 > J'ai entendu le Messager d'Allah ﷺ dire : « Il n'est point de cœur qui ne se trouve entre deux doigts parmi les doigts du Tout-Miséricordieux. S'Il le veut, Il l'affermit dans la rectitude, et s'Il le veut, Il l'égare. » Le Messager d'Allah ﷺ ajoutait également : « Ô Toi qui raffermis les cœurs, affermis nos cœurs sur Ta religion. » [^1]
 
@@ -22,11 +22,11 @@ L'Imam Ahmad rapporte d'après Umm Salama, qu'Allah l'agrée :
 
 > Le Messager d'Allah ﷺ répétait fréquemment cette invocation : « Ô Toi qui retournes les cœurs, raffermis mon cœur sur Ta religion. » Je l'interrogeai alors : « Ô Messager d'Allah, les cœurs peuvent-ils donc vaciller ? » Il répondit : « Assurément. Il n'est aucune créature parmi les fils d'Adam dont le cœur ne soit entre deux Doigts parmi les Doigts d'Allah. S'Il le veut, Il le maintient sur la voie de la droiture, et s'Il le veut, Il l'égare. » Nous implorons donc Allah, notre Seigneur, de ne point laisser nos cœurs s'égarer après nous avoir guidés, et de nous octroyer Sa miséricorde, car Il est, certes, le Grand Donateur. [^2]
 
-Il est primordial pour le musulman, tout en persévérant dans cette invocation, de connaître la nature et les états des cœurs égarés. Cela lui permet de mesurer la valeur de la rectitude et de la protection dont il jouit, ainsi que l'étendue des maux et des altérations dont Allah l'a prémuni. Il louera alors Allah pour ce salut et Le priera sans relâche de préserver son cœur, de le protéger de l'égarement et de la déviation, surtout parce que le cœur est prompt à se détourner. D'après Miqdad ibn Al-Aswad, qu'Allah l'agrée :
+Il est primordial pour le musulman, tout en persévérant dans cette invocation, de connaître la nature et les états des cœurs égarés. Cela lui permet de mesurer la valeur de la rectitude et de la protection dont il jouit, ainsi que l'étendue des maux et des altérations dont Allah l'a prémuni. Il louera alors Allah pour ce salut et Le priera sans relâche de préserver son cœur, de le protéger de l'égarement et de la déviation, surtout parce que le cœur est prompt à se détourner. D'après Miqdad ibn Al Aswad, qu'Allah l'agrée :
 
 > J'ai entendu le Messager d'Allah dire : « Le cœur des fils d'Adam est plus changeant qu'une marmite en pleine ébullition. » [^3]
 
-D'après Abu Musa Al-Ash'ari, qu'Allah l'agrée, le Prophète ﷺ a dit :
+D'après Abu Musa Al Ash'ari, qu'Allah l'agrée, le Prophète ﷺ a dit :
 
 > En vérité, le cœur est comme une plume dans une vaste étendue, que le vent emporte d'un côté à l'autre. [^4]
 
@@ -50,7 +50,7 @@ Et Il a également dit :
 
 Le sens profond de ce verset est que la véritable cécité est celle du cœur (celle qui entrave la reconnaissance de la guidance) au point que la cécité physique paraît dérisoire en comparaison. Ainsi, elle est parfois niée en raison de son imperfection et de sa faiblesse, à l'instar de ce que l'on trouve dans certaines paroles prophétiques :
 
-- « Al-Riba est uniquement dans le crédit. » [^7]
+- « Al Riba est uniquement dans le crédit. » [^7]
 - « L'eau est uniquement pour l'eau. » [^8]
 - « La richesse n'est pas dans l'abondance des biens, mais dans la richesse de l'âme. » [^9]
 - « Le pauvre n'est pas celui qui se contente d'une bouchée ou deux de nourriture, d'une datte ou deux. Le véritable pauvre est celui qui ne possède pas de quoi subvenir à ses besoins, et dont les gens ignorent la situation, si bien qu'ils ne lui donnent pas l'aumône. » [^10]
@@ -134,7 +134,7 @@ Ces trois entraves sont réunies dans Sa parole :
 
 Allah a indiqué que cette conséquence émane de Lui [^19] : le rideau empêche de discerner la vérité, les voiles font obstacle à sa compréhension et la surdité rend toute écoute impossible. [^20]
 
-8. Parmi elles : Al-Rân, tel qu'évoqué dans la parole d'Allah ﷾ :
+8. Parmi elles : Al Rân, tel qu'évoqué dans la parole d'Allah ﷾ :
 
 > Non ! Mais sur leur cœur se trouve le Rân (un voile de péchés et de mauvaises actions) qu'ils avaient accumulé. [Sourate 83, v.14]
 
@@ -142,7 +142,7 @@ Ce voile a recouvert leur cœur en raison de la profusion de leurs péchés et d
 
 Mujâhid, qu'Allah lui fasse miséricorde, a dit : « C'est le péché qui s'ajoute au péché jusqu'à cerner le cœur et l'envelopper ; c'est ainsi que le cœur meurt. » Muqâtil, qu'Allah lui fasse miséricorde, a dit : « Leurs mauvaises actions ont submergé leur cœur. »
 
-Dans les Sunan d'Al Nasa'i et d'Al Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
+Dans les Sunan d'Al Nassaï et d'Al Tirmidhi, Abu Hurayra, qu'Allah l'agrée, rapporte que le Messager d'Allah ﷺ a dit :
 
 > « Lorsqu'un serviteur commet une faute, une tache noire se dépose sur son cœur. S'il cesse, implore le pardon et se repent, son cœur est alors poli. Mais s'il persiste, la noirceur s'accumule jusqu'à recouvrir tout son cœur. C'est le Rân dont Allah a dit : \"Non ! Mais sur leur cœur se trouve le Rân qu'ils avaient accumulé\". »
 
@@ -168,11 +168,11 @@ Ibn 'Abbas, qu'Allah les agrée tous deux, a dit : « Leurs oreilles sont sourde
 
 > Sourds, muets [Bukmun]... [Sourate 2, v.18]
 
-**Al-Bukm** est le pluriel d'**Abkam**, terme désignant celui qui est incapable de parler. La mutité revêt deux formes : celle du cœur et celle de la langue ; de même que la parole procède du cœur ou de la langue. La plus grave des deux est la mutité du cœur, tout comme sa cécité et sa surdité s'avèrent bien plus profondes que celles des sens physiques. C'est pourquoi Allah ﷾, les a décrits comme étant incapables de saisir la vérité par le cœur ou de la proclamer par la langue.
+**Al Bukm** est le pluriel d'**Abkam**, terme désignant celui qui est incapable de parler. La mutité revêt deux formes : celle du cœur et celle de la langue ; de même que la parole procède du cœur ou de la langue. La plus grave des deux est la mutité du cœur, tout comme sa cécité et sa surdité s'avèrent bien plus profondes que celles des sens physiques. C'est pourquoi Allah ﷾, les a décrits comme étant incapables de saisir la vérité par le cœur ou de la proclamer par la langue.
 
 Le savoir parvient au serviteur par trois portes : son ouïe, sa vue et son cœur. Or, ces trois portes leur ont été fermées : l'ouïe s'est corrompue par la surdité, la vue par la cécité, et le cœur par la mutité. Cela rejoint la parole d'Allah ﷾ : « Ils ont des cœurs, mais ne comprennent pas. Ils ont des yeux, mais ne voient pas. Ils ont des oreilles, mais n'entendent pas. » [Sourate 7, v.179]. Il ﷾ a réuni ces trois facultés dans Sa parole : « Et Nous les avons dotés de l'ouïe, de la vue et de cœurs, mais ni leur ouïe, ni leurs yeux, ni leur cœur ne leur ont profité en quoi que ce soit, parce qu'ils niaient les signes d'Allah. » [Sourate 46, v.26]. Ainsi, lorsqu'Allah veut guider un serviteur, Il lui ouvre le cœur, l'ouïe et la vue. Mais s'Il veut son égarement, Il le rend sourd, aveugle et muet.
 
-11. Parmi ces caractéristiques figure l'enveloppement [**Al-Ghishawa**].
+11. Parmi ces caractéristiques figure l'enveloppement [**Al Ghishawa**].
 
 Il s'agit du voile posé sur l'œil, comme l'a dit Allah ﷾ :
 
@@ -228,7 +228,7 @@ Le mécréant est ainsi décrit comme un être mort, semblable aux habitants des
 
 Nous demandons à Allah le pardon, la protection et une préservation durable ici-bas et dans l'au-delà.
 
-Traduction: Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: Rapporté par Ibn Majah (199) et authentifié par Al Albani.
 

@@ -36,8 +36,8 @@ l'outrepassement.
 
 J'ai questionné certains savants sur ce sujet [^1]. Il y a une parole de Cheikh Al Islam
 dans Al Fatawa, qui évoqua trois catégories dont celle-ci. Il la qualifia
-d'innovation. Cependant, il a également dit dans Iqtidâ As-Sirât Al-Moustaqîm
-Moukhâlafat 'Asshâb Al-Djahîm, que c'est ce que les chrétiens ont fait avec Issa, et que
+d'innovation. Cependant, il a également dit dans Iqtidâ As-Sirât Al Moustaqîm
+Moukhâlafat 'Asshâb Al Djahîm, que c'est ce que les chrétiens ont fait avec Issa, et que
 c'est une innovation. On comprend ainsi que la parole de Cheikh Al Islam dans Al Fatawa
 désigne l'innovation entraînant la mécréance de son auteur, et non une innovation qui
 n'atteint pas le degré de mécréance. Il faut comprendre cela.
@@ -48,7 +48,7 @@ menant au Shirk. Néanmoins, après réflexion, si on dit que les morts entenden
 comme ont énoncé certains savants, même si le plus apparent est le contraire. À savoir
 qu'ils n'entendent pas, à l'exception de ce qui est rapporté par les preuves, en
 l’occurrence : les claquements des sandales en quittant les cimetières, et les infidèles
-morts (enterrés dans une fosse) à Badr. Tel que rapporté par Al Boukhary, des paroles de '
+morts (enterrés dans une fosse) à Badr. Tel que rapporté par Al Bukhari, des paroles de '
 Omar destinées au prophète ﷺ : « T’adresses-tu à des gens qui sont morts ? ». Le
 prophète ﷺ lui répondit : « Vous ne m’entendez pas mieux qu’eux ». Ainsi que dans le
 hadith authentique : « Tandis qu’il entend le claquement de leurs sandales ».

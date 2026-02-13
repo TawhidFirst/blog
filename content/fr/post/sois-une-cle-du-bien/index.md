@@ -32,7 +32,8 @@ Celui qui souhaite pour lui-même compter parmi les clés du bien et les verrous
 
 Et c'est Allah qui se charge d'accorder le succès à Ses serviteurs. Il ouvre à qui Il veut en toute vérité, Il est le meilleur des Fatihin[^3].
 
-Source: Site officiel du Cheikh 'Abd Al Razzaq Al Badr, qu'Allah le préserve.
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: [NDT] Ce terme a été interprété de diverses manières par les érudits. Certains ont affirmé qu'il fait référence au paradis, tandis que d'autres ont avancé qu'il désigne un arbre du paradis dont l'ombre s'étend sur une distance parcourue en cent ans, et dont les habitants du paradis tirent leurs vêtements, comme le rapportent des hadiths explicites. Une autre interprétation avance que la racine de ce terme évoque ce qui est bon, annonçant ainsi une bonne vie dans ce monde et dans l'au-delà. Cette dernière explication est la plus exhaustive, car elle englobe tous les points précédents, comme l'a souligné Cheikh Mohammed Al 'Othaymine, qu'Allah lui fasse miséricorde.
 

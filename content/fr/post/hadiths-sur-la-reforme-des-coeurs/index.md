@@ -43,9 +43,9 @@ Que les éloges d'Allah et le salut soient sur Son serviteur et messager,
 notre prophète Mohammed, sur ses fidèles suiveurs et l'ensemble de ses
 comapagnons.[^3]
 
-Traduction: Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
-[^1]: Rapporté par Al Boukhary (52) et Mouslim (1599).
+[^1]: Rapporté par Al Bukhari (52) et Muslim (1599).
 
 [^2]: Rapporté par Ibn Abi Al Dounya dans Al Tawadu' Wal Khumul (240),
     et par Abu Nu'aym dans Hilyat Al Awliya (2/154).
@@ -90,7 +90,7 @@ Traduction: Azwaw Abou 'Abd Al Razzaq
     la plus haute s'incarnent dans la parole du Tawhid : "N'as-tu pas vu
     comment Allah propose en parabole une bonne parole pareille à un bel
     arbre dont la racine est ferme et la ramure s’élance dans le ciel."
-    \[Sourate 14, v.24\]. Selon Abu Hourayra, qu'Allah l'agrée, le
+    \[Sourate 14, v.24\]. Selon Abu Hurayra, qu'Allah l'agrée, le
     Prophète ﷺ a dit : "La foi se compose d'environ soixante-dix
     branches : la plus haute est la parole 'La Ilaha Illa Allah', la
     plus basse est le fait de retirer un objet gênant du chemin, et la

@@ -138,8 +138,8 @@ Voilà une invocation grandiose qui réunit ce fondement majeur qu'est l'amour d
 
 Ô notre Seigneur, fais vivre nos cœurs par Ton amour, illumine nos poitrines par Ton obéissance et guide-nous vers Toi sur un droit chemin.
 
-**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: [NDT] Les Noms d'Allah ont été conservés en phonétique arabe plutôt que traduits, et ce pour plusieurs raisons. D'une part, chaque Nom divin recèle une pluralité de sens qu'aucun équivalent français ne saurait embrasser pleinement. Par exemple, le nom Al Jabbar réunit trois sens : Celui qui répare les cœurs brisés, Celui dont la puissance souveraine soumet toute chose, et Celui dont la grandeur s'élève au-delà de toute atteinte. D'autre part, les Noms d'Allah sont « Tawqifiyya », c'est-à-dire établis par la Révélation : on ne saurait les modifier ni en forger de nouveaux, et une traduction risquerait de laisser croire que le terme français constitue lui-même un Nom divin. Enfin, cette approche permet aux lecteurs francophones d'apprendre la prononciation authentique des Noms qu'Allah S'est attribués, de les employer dans leurs invocations, et d'éviter certaines erreurs telles que croire qu'un terme traduit fait réellement partie des Noms d'Allah ou nommer son enfant par 'Abd annexé à ces termes. Si Allah me le permet, un glossaire détaillant ces significations sera mis en place et consultable sur le site.
 

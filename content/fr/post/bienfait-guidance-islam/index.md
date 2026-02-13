@@ -79,6 +79,6 @@ C'est là l'une des invocations les plus complètes et les plus grandioses. Quic
 > Et qui profère de plus belles paroles que celui qui appelle à Allah, accomplit une œuvre pieuse et dit : « Je suis du nombre des musulmans » ? [Sourate 41, v.33]
 
 **Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: [NDT] Al Hanif est celui qui s'oriente exclusivement vers Allah et, par implication, se détourne de tout autre que Lui. Il s'agit de la religion d'Ibrahim Al Hanifiya, qui n'est autre que l'Islam authentique : « Et ils ont dit : "Soyez juifs ou chrétiens, vous serez bien guidés." Dis : "Non ! [Nous suivons] la religion d'Ibrahim, pur monothéiste (Hanif), et il n'était pas du nombre des associateurs." » [Sourate 2, v.135]. L'imam Si'di a dit : « Hanif, c'est-à-dire entièrement tourné vers Allah, se détournant de tout autre que Lui, établi sur le Tawhid, abandonnant l'association et toute forme de polythéisme. » [Tayssir Al Karim Al Rahman (p. 67)].

@@ -85,9 +85,9 @@ Car :
 > Il ne croyait pas en Allah l'Immense. [Sourate 69, v.33]
 
 **Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
-[^1]: Rapporté par Abu Dawud (873) et Al Nasa'i (1132).
+[^1]: Rapporté par Abu Dawud (873) et Al Nassaï (1132).
 
 [^2]: Rapporté par Muslim (479).
 

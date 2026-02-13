@@ -86,5 +86,5 @@ Considérez un homme affamé, dont la faim s'est intensifiée, devant lequel on 
 
 Une telle méditation et une telle contemplation profitent immensément à l'homme dans son audace et sa retenue, dans son amour et son aversion, dans son don et son refus, et dans l'ensemble de ses affaires. Nous demandons à Allah ﷿, par Ses Noms sublimes et Ses Attributs élevés, de nous accorder à tous un cœur sain et une langue véridique, de rectifier l'ensemble de notre condition, d'accorder à nos cœurs leur piété et de les purifier, car Il est, glorifié et exalté soit-Il, le meilleur de Ceux qui les purifient.
 
-**Ecrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+**Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq

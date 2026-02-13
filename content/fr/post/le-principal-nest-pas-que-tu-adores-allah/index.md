@@ -27,5 +27,5 @@ associés." [Sourate 12, v.106]
 Que le musulman soit vigilant sur ce point. Le principal n'est pas que tu adores Allah, 
 mais plutôt que tu te désavoues également de toutes adorations vouées à autres qu'Allah.
 
-Source : Explication des "Quarante ahadith d'Al-Nawawi », Cheikh Moustapha Mabram, 
+Source : Explication des "Quarante ahadith d'Al Nawawi », Cheikh Moustapha Mabram, 
 qu'Allah le préserve.

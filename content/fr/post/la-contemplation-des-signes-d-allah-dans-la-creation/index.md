@@ -77,7 +77,7 @@ Et le Très-Haut a dit :
 D'autres versets encore, fort nombreux dans le Coran, invitent les serviteurs à observer Ses signes et Ses œuvres, qui constituent la plus grande preuve de Son unicité, de Sa singularité, de Sa puissance, de Sa volonté et de Sa science, pureté à Lui le Très-Haut, ainsi que de Sa bonté, de Sa délicatesse et de Sa générosité. Cela constitue le plus puissant motif incitant les serviteurs à aimer Allah, à Le remercier, à Le vénérer, à Lui obéir et à s'attacher à Son évocation. Il apparaît ainsi clairement que l'observation de l'univers et sa méditation comptent parmi les plus grandes causes de la foi et ses moteurs les plus profitables.
 
 **Écrit par**: Cheikh 'Abd Al Razzaq Al Badr  
-*Traduit par* : Azwaw Abou 'Abd Al Razzaq
+*Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: Fin de citation, tirée de Miftah Dar Al Sa'ada d'Ibn Al Qayyim (p. 205-226) avec quelques adaptations.
 
