@@ -1,6 +1,6 @@
 ---
-title: La foi en la prophétie de Mohammed ﷺ
-description: Croire en sa prophétie, l'aimer et suivre sa voie ﷺ.
+title: La foi en la prophétie de Mohammed
+description: Croire en sa prophétie, l'aimer et suivre sa voie.
 image: image.jpg
 date: 2026-02-13
 tags:
