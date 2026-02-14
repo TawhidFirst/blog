@@ -1,5 +1,5 @@
 ---
-title: Description de la foi
+title: La description de la foi
 description: La foi, sa nature, ses fondements, ses ramifications et ses fruits ici-bas et dans l'au-dela.
 image: image.jpg
 date: 2026-02-14
