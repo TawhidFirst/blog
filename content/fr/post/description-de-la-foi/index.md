@@ -36,7 +36,7 @@ La foi est un arbre béni, doté d'une racine ferme, d'une ramure dressée et de
 
 Ô combien cet arbre est pur ! Quelle splendeur est la sienne ! Et combien vastes sont ses biens et ses bénédictions !
 
-L'arbre de la foi a ses racines fermement ancrées dans le cœur du croyant par les croyances saines et les convictions droites puisées dans le Livre d'Allah et la Sunna de Son Prophète ﷺ. Allah les a réunies dans Sa parole :
+L'arbre de la foi a ses racines fermement ancrées dans le cœur du croyant par les croyances saines et les convictions droites puisées dans le Livre d'Allah et la Sunnah de Son Prophète ﷺ. Allah les a réunies dans Sa parole :
 
 > La bonté pieuse ne consiste pas à tourner vos visages vers l'Orient ou l'Occident. Mais la bonté pieuse est de croire en Allah, au Jour Dernier, aux anges, au Livre et aux prophètes. [Sourate 2, v.177]
 

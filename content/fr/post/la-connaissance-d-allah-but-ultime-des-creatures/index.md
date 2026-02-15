@@ -10,7 +10,7 @@ categories:
 draft: false
 ---
 
-Parmi les stations grandioses de la religion islamique, parmi ses demeures élevées et éminentes, figure la connaissance du Seigneur immense et du Créateur majestueux. Cette connaissance s'acquiert par la méditation de Ses Noms sublimes et de Ses Attributs élevés, ainsi que par tout ce dont Il S'est fait connaître à Ses serviteurs dans Son Livre et dans la Sunna de Son Messager ﷺ. Voilà un fondement parmi les fondements grandioses de la religion, un pilier parmi les piliers solides de la foi. C'est l'essence même de la croyance, son origine et sa base.
+Parmi les stations grandioses de la religion islamique, parmi ses demeures élevées et éminentes, figure la connaissance du Seigneur immense et du Créateur majestueux. Cette connaissance s'acquiert par la méditation de Ses Noms sublimes et de Ses Attributs élevés, ainsi que par tout ce dont Il S'est fait connaître à Ses serviteurs dans Son Livre et dans la Sunnah de Son Messager ﷺ. Voilà un fondement parmi les fondements grandioses de la religion, un pilier parmi les piliers solides de la foi. C'est l'essence même de la croyance, son origine et sa base.
 
 Quelle station grandiose, quelle demeure majestueuse, quel rang prestigieux que celui où la créature connaît son Créateur, son Seigneur, son Maître, Celui qui lui a donné l'existence et son Protecteur ! Elle découvre alors Sa grandeur, Sa majesté, Sa beauté et Sa superbe. Elle apprend à connaître Ses Noms sublimes et Ses Attributs élevés.
 
