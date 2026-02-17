@@ -2,7 +2,7 @@
 title: L'intégrité des coeurs et des langues
 description: L'effet du jeûne sur la réforme de l'individu
 image: image.jpg
-draft: False
+draft: true
 date: 2024-03-15
 tags: 
 - Ramadan

@@ -2,7 +2,7 @@
 title: La préservation du temps pendant le Ramadan
 description: Une leçon sur le temps et la vie
 image: image.jpg
-draft: False
+draft: true
 date: 2024-03-16
 tags: 
 - Ramadan

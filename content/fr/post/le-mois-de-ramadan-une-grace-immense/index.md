@@ -2,7 +2,7 @@
 title: Le mois de Ramadan, une grâce immense 
 description: Quel mois noble et quelle période grandiose ! 
 image: image.jpg
-draft: False
+draft: true
 date: 2024-03-12
 tags: 
 - Ramadan
