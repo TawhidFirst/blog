@@ -1,5 +1,5 @@
 ---
-title: Accueil du mois de Ramadan
+title: L'accueil du mois de Ramadan
 description: L'importance de ce mois béni et comment l'accueillir
 image: image.jpg
 date: 2026-02-17
