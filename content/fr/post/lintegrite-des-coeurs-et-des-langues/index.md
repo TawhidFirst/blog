@@ -7,7 +7,7 @@ tags:
 - Ramadan
 categories:
 - Articles
-draft: true
+draft: false
 ---
 
 Al Hakim et d'autres ont rapporté d'après Abu Hurayra, qu'Allah l'agrée, que le Prophète ﷺ a dit : « Le jeûne ne consiste pas seulement à s'abstenir de manger et de boire, mais à s'abstenir de paroles fausses et obscènes. Si quelqu'un t'insulte ou te provoque, dis : "Je jeûne" »[^1]. L'Imam Ahmad a rapporté d'après Yazid ibn 'Abd Allah ibn Al Shikhkhir, selon un bédouin qui a entendu le Prophète ﷺ dire : « Le jeûne du mois de la patience et celui des trois jours de chaque mois font disparaître la chaleur du cœur »[^2].
