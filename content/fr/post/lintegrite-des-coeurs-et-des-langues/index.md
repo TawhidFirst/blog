@@ -1,5 +1,5 @@
 ---
-title: L'intégrité des cœurs et des langues
+title: L'intégrité des coeurs et des langues
 description: Il se peut que le jeûneur ne récolte que la faim et la soif
 image: image.jpg
 date: 2026-02-19
