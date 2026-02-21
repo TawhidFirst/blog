@@ -2,7 +2,7 @@
 title: La préservation du temps pendant le Ramadan
 description: La perte du temps est pire que la mort
 image: image.jpg
-date: 2026-02-19
+date: 2026-02-21
 tags:
 - Ramadan
 categories:
