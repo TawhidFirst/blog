@@ -7,7 +7,7 @@ tags:
 - Ramadan
 categories:
 - Articles
-draft: true
+draft: false
 ---
 
 Le temps de l'homme est en réalité sa vie. C'est la matière de son existence éternelle dans le bonheur durable ou le tourment douloureux. Il s'écoule tel le passage des nuages. La nuit et le jour n'ont cessé de se succéder avec célérité, abrégeant les existences et rapprochant les échéances. Ils ont accompagné avant nous Nuh, 'Ad, Thamud et de nombreuses générations entre eux. Tous ont comparu devant leur Seigneur, ont été confrontés à leurs œuvres et leurs existences se sont consumées, tandis que la nuit et le jour sont demeurés intacts et neufs parmi les nations qui leur ont succédé. Allah a dit (dans le sens rapproché) : « C'est Lui qui a assigné la nuit et le jour en alternance pour quiconque veut se rappeler ou veut être reconnaissant. » [Sourate 25, v.62].
