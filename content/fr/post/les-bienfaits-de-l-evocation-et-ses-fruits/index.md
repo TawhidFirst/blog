@@ -1,6 +1,6 @@
 ---
 title: Les bienfaits de l'évocation et ses fruits
-description: Dix bienfaits du dhikr tirés du Coran et de la Sunnah.
+description: Dix bienfaits de l'évocation tirés du Coran et de la Sunnah.
 image: image.jpg
 date: 2026-02-25
 tags:
