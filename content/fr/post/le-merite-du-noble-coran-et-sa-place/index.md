@@ -1,6 +1,6 @@
 ---
 title: Le mérite du noble Coran et sa place
-description: Le mérite du Coran et sa grandeur, et comment les Pieux Prédécesseurs le vivaient durant Ramadan
+description: La grandeur du Livre d'Allah et l'attention que lui vouaient les Pieux Prédécesseurs durant Ramadan
 image: image.jpg
 date: 2026-02-27
 tags:
