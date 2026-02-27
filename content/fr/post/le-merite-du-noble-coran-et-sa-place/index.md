@@ -39,7 +39,7 @@ Qu'Allah nous accorde, ainsi qu'à vous, de bien les suivre et de marcher sur le
 
 [^3]: Rapporté par Al Bayhaqi dans Shu'ab Al Iman (2137). 
 
-    [NDT] La parole d'Allah est un attribut d'Allah, non créé, qui n'équivaut à aucune autre parole, celle-ci étant nécessairement créée, qu'il s'agisse de la parole des savants ou de quiconque. La différence entre un attribut d'Allah et celui des créatures est comparable à la différence entre le Créateur et les créatures. Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « Les attributs ont le même statut que l'Essence : de même que Son Essence, Pureté à Lui, ne ressemble pas aux essences, Ses attributs ne ressemblent pas aux attributs » [Al Sawa'iq Al Mursala (1/65)].
+    [NDT] La parole d'Allah est un attribut d'Allah, non créé, qui n'équivaut à aucune autre parole, celle-ci étant nécessairement créée, qu'il s'agisse de la parole des prophètes ou de quiconque. La différence entre un attribut d'Allah et celui des créatures est comparable à la différence entre le Créateur et les créatures. Ibn Al Qayyim, qu'Allah lui fasse miséricorde, a dit : « Les attributs ont le même statut que l'Essence : de même que Son Essence, Pureté à Lui, ne ressemble pas aux essences, Ses attributs ne ressemblent pas aux attributs » [Al Sawa'iq Al Mursala (1/65)].
 
 [^4]: Voir Al Silsila Al Da'ifa d'Al Albani (1334). 
 
