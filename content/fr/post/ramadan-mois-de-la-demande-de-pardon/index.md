@@ -38,7 +38,7 @@ Le pardon a trois causes majeures qui sont réunies dans le hadith d'Anas mentio
 
 Ô Allah, pardonne-nous tous nos péchés, les petits et les grands, ceux que nous connaissons et ceux que nous ignorons, et scelle nos œuvres par les bonnes actions.
 
-**Écrit par** : Cheikh 'Abd Al Razzaq Al Badr
+**Écrit par** : Cheikh 'Abd Al Razzaq Al Badr  
 *Traduit par* : Azwaw Abu 'Abd Al Razzaq
 
 [^1]: [NDT] Ibn Mas'ud, qu'Allah l'agrée, a dit : « Le verset le plus porteur d'espoir dans le Coran est : "Ô Mes serviteurs qui avez commis des excès à votre propre détriment, ne désespérez pas de la miséricorde d'Allah." » Et Masruq confirma ses propos. 'Ali ibn Abi Talib, qu'Allah l'agrée, a dit de même : « Il n'y a pas dans le Coran de verset plus vaste que celui-ci. » [Tafsir Al Tabari (21/308-309)].
