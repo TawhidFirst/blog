@@ -53,7 +53,9 @@ Le pardon a trois causes majeures qui sont réunies dans le hadith d'Anas mentio
 
 [^6]: Al Mu'jam Al Kabir (2023).
 
-[^7]: Jami' Al Tirmidhi (3545) et Mustadrak Al Hakim (2016). [NDT] Que le musulman médite sur cette situation : Allah, qui n'a nul besoin de Ses serviteurs, leur ouvre de multiples portes vers Son pardon, qu'il s'agisse du mois de Ramadan, de la bonté envers les parents ou de la prière sur le Prophète ﷺ, tandis que le serviteur, lui qui est dans le besoin le plus total de son Seigneur, se détourne et refuse d'y entrer. Qu'il médite également sur cette invocation, émanant du meilleur des anges, Jibril, paix sur lui, renforcée par le Amin du meilleur des hommes ﷺ : une invocation d'éloignement de la miséricorde contre celui qui néglige ces occasions. Quelle perte immense pour celui qui en est l'objet, lui qui dépend entièrement de son Seigneur, alors qu'Allah Se dispense entièrement de lui. « Ô hommes, vous êtes les indigents ayant besoin d'Allah, et c'est Allah qui Se dispense de tout et qui est le Digne de louange. » [Sourate 35, v.15].
+[^7]: Jami' Al Tirmidhi (3545) et Mustadrak Al Hakim (2016).
+
+    [NDT] Que le musulman médite sur cette situation : Allah, qui n'a nul besoin de Ses serviteurs, leur ouvre de multiples portes vers Son pardon, qu'il s'agisse du mois de Ramadan, de la bonté envers les parents ou de la prière sur le Prophète ﷺ, tandis que le serviteur, lui qui est dans le besoin le plus total de son Seigneur, se détourne et refuse d'y entrer. Qu'il médite également sur cette invocation, émanant du meilleur des anges, Jibril, paix sur lui, renforcée par le Amin du meilleur des hommes ﷺ : une invocation d'éloignement de la miséricorde contre celui qui néglige ces occasions. Quelle perte immense pour celui qui en est l'objet, lui qui dépend entièrement de son Seigneur, alors qu'Allah Se dispense entièrement de lui. « Ô hommes, vous êtes les indigents ayant besoin d'Allah, et c'est Allah qui Se dispense de tout et qui est le Digne de louange. » [Sourate 35, v.15].
 
 [^8]: Tafsir Ibn Kathir (sourate Nuh, 8/233).
 
