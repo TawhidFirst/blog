@@ -1,0 +1,18 @@
+{{ if and (.Site.Params.article.share.enabled) (not .Params.disableShare) }}
+{{ $url := .Permalink }}
+{{ $title := .Title }}
+<section class="article-share">
+    <a class="share-btn" href="https://t.me/share/url?url={{ $url | urlquery }}&text={{ $title | urlquery }}" target="_blank" rel="noopener" title="Telegram">
+        {{ partial "helper/icon" "share-telegram" }}
+    </a>
+    <a class="share-btn" href="https://wa.me/?text={{ printf "%s %s" $title $url | urlquery }}" target="_blank" rel="noopener" title="WhatsApp">
+        {{ partial "helper/icon" "share-whatsapp" }}
+    </a>
+    <a class="share-btn" href="https://x.com/intent/tweet?url={{ $url | urlquery }}&text={{ $title | urlquery }}" target="_blank" rel="noopener" title="X">
+        {{ partial "helper/icon" "share-x" }}
+    </a>
+    <button class="share-btn" onclick="navigator.clipboard.writeText('{{ $url }}').then(()=>{this.classList.add('copied');setTimeout(()=>this.classList.remove('copied'),2000)})" title="Copier le lien">
+        {{ partial "helper/icon" "share-link" }}
+    </button>
+</section>
+{{ end }}

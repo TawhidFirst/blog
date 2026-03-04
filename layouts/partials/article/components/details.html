@@ -48,6 +48,10 @@
                 </time>
             </div>
         {{ end }}
+
+        {{ if and (.Site.Params.article.share.enabled) (not .Params.disableShare) }}
+            {{ partial "article/components/share" . }}
+        {{ end }}
     </footer>
     {{ end }}
 
