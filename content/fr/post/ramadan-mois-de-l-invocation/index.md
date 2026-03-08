@@ -10,6 +10,8 @@ image: image.jpg
 draft: false
 ---
 
+{{< youtube -wBqHQYVgrk >}}
+
 Il est établi dans les Sunan, d'après Al Nu'man ibn Bashir, qu'Allah l'agrée, que le Messager d'Allah ﷺ a dit : « L'invocation est l'adoration »[^1], puis il récita (dans le sens rapproché) :
 
 > « Et votre Seigneur a dit : "Invoquez-Moi, Je vous répondrai. Ceux qui, par orgueil, se refusent à M'adorer entreront bientôt en Enfer, humiliés." » [Sourate 40, v.60][^2]
