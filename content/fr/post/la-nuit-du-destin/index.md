@@ -1,7 +1,7 @@
 ---
 title: La Nuit du Destin
 date: 2026-03-14
-description: "Une seule nuit qui surpasse mille mois : pourquoi la chercher et comment la saisir"
+description: "Une seule nuit qui surpasse mille mois, pourquoi la chercher et comment la saisir"
 tags:
 - Ramadan
 categories:
