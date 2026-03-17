@@ -10,6 +10,8 @@ image: image.jpg
 draft: false
 ---
 
+{{< youtube EHcKEDq0Qwo >}}
+
 Ramadan est le mois des bienfaits, des bénédictions et des actes d'obéissance. C'est le mois du jeûne, le mois de la prière et de la prière nocturne, le mois du rappel et de la récitation du Coran, le mois de la générosité, de la noblesse, de la Zakat, de l'aumône, de la piété et de la bienfaisance. Le Messager d'Allah ﷺ était le plus généreux des hommes, et sa générosité redoublait pendant Ramadan. Le jeûne entretient en effet un lien étroit avec la dépense et l'aumône : lorsque les riches s'abstiennent durant une période déterminée de nourriture et de boisson par obéissance à Allah, qu'ils endurent l'ardeur de la faim et la douleur de la soif, cela les amène à se souvenir de leurs frères musulmans qui endurent ces souffrances tout au long de l'année ou la majeure partie de celle-ci. Allah jette alors la miséricorde dans leurs cœurs envers leurs frères, et leurs âmes consentent à donner et à dépenser leurs biens, qu'il s'agisse de la Zakat obligatoire ou des aumônes et dépenses recommandées dans toutes les voies du bien.
 
 S'agissant de la Zakat, Allah a imposé aux croyants possédant des biens qui y sont assujettis une aumône versée aux nécessiteux parmi eux et aux œuvres d'utilité publique, comme Il l'a dit (dans le sens rapproché) :
